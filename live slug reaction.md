@@ -29,3 +29,26 @@ No, *Freetown's perfect just the way it is*. Cobb didn't want to leave his home.
 He had been kidding, that had to be it. He had said so, and although sometimes people sometimes use that to dismiss the truth, people also sometimes tease and prod without any hidden agenda. *Dank ferrik*, how was Din supposed to pinpoint either for any given situation.
 
 He had to stop reeling, that's what he had to do. Things were the way they were, and they would continue to be that way. Cobb would help with Fett's war, he'd see him again then, and then he'd see him every time he stopped by Freetown with whatever excuse he could come up with. This time, he had managed to ask if he could buy him a drink. It would only take him a couple hundred decades to take another step in that direction. 
+
+## Chapter 2
+"I paid Marshal Vanth a visit. You should've never left him without his armor."
+
+Din saw white in the edges of his vision. He raised his blaster with a shaking hand. All he wanted to do was to pull the trigger. No, that wouldn't be enough. He wanted to *pounce* on this cocky stranger, wipe the sharp-toothed smirk off his blue face with blow after blow from his fists.
+
+But Fett needed him steady. And the stranger had backup that could make the whole thing turn ugly real quick. He needed to focus on the current mission. Fucking it up would solve nothing.
+
+It would not bring him back. He was gone, and he would stay gone. *And all because I took his armor away*.
+
+## Chapter 3
+"All repairs are now complete. All traces of the Pyke Syndicate have been eliminated. We can now officially put the whole thing behind us."
+
+Din's attention was on Boba Fett's words, but his eyes were on Grogu at all times. As the mischievous womp rat toddled around the throne room, Din feared that he'd break something expensive or eat something important.
+
+"And I have a little surprise for you, Djarin." Just as Boba said this, Grogu crashed into the clone's leg, raising his tiny hands to demand being picked up. Laughing, Boba grabbed him by the waist and scooted over to the right so that the child could sit next to him on the throne. 
+
+This allowed Din to finally look at the other Mandalorian. "A surprise?" He wondered what kind of weapon it would be. It had to be a weapon. On the rare occasions when someone gifted him something, it was always a weapon. They didn't know what else to give him, and there wasn't anything else he wanted.
+
+The answer came from Fennec, balanced on the right arm of Boba's throne, as always. "He's stable now." Din's brows furrowed with confusion. *So... not a weapon.* Fennec kept on talking, obviously unaware of this, "Fett didn't want to tell you anything until we were sure he'd pull through."
+
+Before Din could ask for some sort of explanation or context to whatever it was Fennec was talking about, a voice spoke from the throne room entrance that led deep into the palace, and Din felt his heart hop into his mouth and his chest tighten.
+
