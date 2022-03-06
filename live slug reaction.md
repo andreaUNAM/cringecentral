@@ -50,5 +50,36 @@ This allowed Din to finally look at the other Mandalorian. "A surprise?" He wond
 
 The answer came from Fennec, balanced on the right arm of Boba's throne, as always. "He's stable now." Din's brows furrowed with confusion. *So... not a weapon.* Fennec kept on talking, obviously unaware of this, "Fett didn't want to tell you anything until we were sure he'd pull through."
 
-Before Din could ask for some sort of explanation or context to whatever it was Fennec was talking about, a voice spoke from the throne room entrance that led deep into the palace, and Din felt his heart hop into his mouth and his chest tighten.
+Before Din could ask for some sort of explanation or context for whatever it was Fennec was talking about, a voice spoke from the throne room entrance that led deep into the palace, and Din felt his heart hop into his mouth and his chest tighten.
 
+"What, were you worried about me or somethin'?" And indeed, there he was. Leaning against the stone archway, the same thin frame, the same red shirt, the same red neckerchief. 
+
+Cobb sauntered towards Din, and all Din could do is stare in shock. He wanted to reach out, touch him, grab him by the shoulders, make sure he wasn't a specter. Grogu's new teacher sometimes spoke of specters—he spoke of receiving guidance from his master years after his passing in a rescue mission gone wrong in Lothal. Din didn't consider himself close enough to the Force for any sort of thing, but how else could he explain this?
+
+Cobb was finally close enough that Din's hand fell on a warm and tangible shoulder. The Marshal watched him with amusement. "You were..." Din began, but the sour word refused to leave his mouth.
+
+"Nothin' some spare parts couldn't fix." Cobb raised his hand, and Din noticed that his entire right arm was now mechanical.
+
+"Oh," was all Din said, because his mind couldn't settle on any of the many things he wanted to say to the Marshal, and it was a good thing, because they ranged from *I'm sorry, I shouldn't have left you alone and unprotected. I'll get you a new armor*, to the unhinged extremes of *I'll melt down my own armor to make sure you are never vulnerable again*, and the particularly intense: *Marry me. Marry me. I cannot bear to lose you ever again. Marry me.* 
+
+Just about the normal amount of buckwild bullshit that his brain always put him through and that made Peli call him "way too ride-or-die at the drop of a hat".
+
+He was staring at the metal arm, and Cobb must've taken that as mechanical curiosity because he rolled up his sleeve to allow closer inspection. And he could do that. He could pretend to care about every single wire and bolt just so he could take a step closer. He could tilt his head forwards slightly to get a better angle for his inspection, of course. Nothing else.
+
+Somehow, even with the impenetrable beskar between them, Din sensed the moment their foreheads touched. Lightly. Barely. He felt his pulse quicken and a hot tickling sensation climb up the back of his neck. He knew he was being a coward. He was shielding himself behind Vanth's ignorance of Mandalorian culture. It wasn't fair on the Marshal, who he was leading to believe that the closeness meant nothing to Din and the press of foreheads—the *kiss*—went unnoticed because of the helmet.
+
+Ashamed, Din took a step back, but Cobb was none the wiser to his inner turmoil. "Yeah, it's top of the line." He flexed his robotic fingers, demonstrating the responsiveness of the device, and shot Din a wink with a twinkle in his eyes. "Good thing you have such powerful friends, Mando."
+
+Din cleared his throat and muttered, "Yeah," not bearing to look at Cobb anymore. His eyes searched the throne room for any distraction, and they fell on Fett, who looked like he was having a blast and raised his eyebrow when Din's head turned his way. Right. The other Mandalorian in the room. "In *public*?" he mouthed with a twitch of a smirk. The hot flush made its way from the back of his neck to Din's face.
+
+Not satisfied with his torture, Boba spoke up, loud and clear, "Well, time to get a room, Djarin." He let his words hang in the air as he stood up from his throne and stretched. Din wanted the rancor to break through the grating and pull him down into the sweet release of death. He did not dare to look at Cobb to see his reaction. "The kid is getting fussy, you need to get him to bed, and dinner will be ready soon."
+
+"I could eat!" Cobb sounded chirp as ever, but still Din refused to look at him. He made his way to the throne and picked up Grogu, who, indeed, was starting to yawn. He just wanted to shrink to the size of a mouse droid and scuttle away into the refuge of his private quarters, but what would Cobb think? The Marshal had come back to life, and two seconds later Din was running away from him. 
+
+Gathering his courage, he turned around to face Cobb once again. His face felt so hot he was sure his helmet was going to melt at any moment. "I'm glad you're okay," he said, pushing all of his relief and happiness through his vocoder so his voice wouldn't sound monotone like it often did.
+
+Cobb smiled and replied, "I'm glad I'm okay, too. And it's mighty great to see you again. Always a sight for sore eyes, you are."
+
+Din knew himself to be a man of few words. But in his current situation, in his current state, he was a man of zero words. His words were in the red numbers. Thankfully, Grogu kicked and squirmed in his arms, upset that he had been removed from the comforts of the throne and that he couldn't make himself fully comfortable in his father's arms. "Uh, I gotta-"
+
+"'Course. Catch you later, partner." Cobb winked again and walked out of the throne room.
