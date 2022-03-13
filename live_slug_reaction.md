@@ -115,5 +115,36 @@ Cobb, leaning as always, balancing a tray on one hand. "Master Djarin," he mocke
 
 "You still call me "Marshal", and I had to learn your name from the random daimyo who dragged me into his bacta tank and his right-hand assassin."
 
-Din sighed and accepted the offered tray. "Thank you..." He swallowed again. "... Cobb."
+Din sighed and accepted the offered tray. "Thank you..." He swallowed again. "... Cobb." Turning away from a chuckled, "Now was that so hard?", Din placed the tray in the small table his room was equipped with. As an afterthought, he realized Cobb very probably had the intention of leaving almost immediately; Din had to do his part in this exchange to communicate his desire for him to stay.
 
+*Did* he want him to stay?
+
+He wanted him to stay.
+
+Just as Cobb was about to awkwardly slink away, Din turned around again and ushered him in with a stiff gesture. "Oh-kay," Cobb muttered and frowned slightly as he stepped inside, but he relaxed when he realized Din was making no moves towards sitting down to his dinner. He just stood there. Silent as always.
+
+"I'm... I'm sorry," the Mandalorian began in a whisper. "I left you without armor, I left you vulnerable. And then, on top of that, I dragged my problems into your town. It's all my fault."
+
+Cobb rolled his eyes. "Listen, I'm not going to stand here and let you talk about me like I'm some sweet lil' thing who can lift a blaster to save their life. I told you, I was being more careful, but sometimes, the wrong guy comes around and careful isn't enough." Not receiving even a twitch as a response, he softened his tone. "And I'm okay now, ain't I? And ain't that what matters?"
+
+Din had never meant to imply Cobb wasn't capable of fending off for himself. He had just tried, and failed, to pour out the guilt gnawing at each and every one of his organs. He could try to put that into words, explain how deep his concern for Cobb ran. Or he could change the subject. "So you're working for Fett now?"
+
+There was a slight pursing of lips, a shadow of resistance against abandoning the previous topic, but the Marshal gave in, for now. "Nah, I'm just waiting for the all clear from the med droid, and then it's back to Freetown for me." He gave his buckle a quick tap. "Duty calls and all that."
+
+The words started to pour out of Din's mouth against his will. He was aware he was saying them, of course he was aware, and a rational part of him thought that all it would take is muscles pulling on bone and teeth grinding on teeth to get them to stop, but a deeper part of him knew it wouldn't be enough. 
+
+"You're going to need a new deputy, and I don't think I'm going to be getting a lot of bounty hunting done with that new starfighter." He had turned away from Cobb without realizing and was gazing without focusing at a far wall. "Grogu could grow up, at his own pace, terrorizing the local womp rat population. Maybe if he had a home again, an actual house kind of home... And if I manage to convince his new teacher to bring the lessons to him..." He trailed off, and was suddenly way too present in this room, in front of Cobb, and with the silence following his ramblings hanging between them.
+
+Until Cobb broke it with a sigh. "None of that's going to happen, is it?"
+
+Din refused to answer. He wanted to explain, but he didn't know how to explain. His heart ached for *something*, for a life on the move, for a place to stay and call his own, for a home for Grogu, for safety for a little creature with so many people wanting to track him down and do him ill. If he couldn't understand what he wanted, how could he put it into words?
+
+Luckily, in this scenario, the explanation may be lost, but in terms of *yes* or *no*, it was rather clear what silence meant.
+
+Cobb smiled sadly. "You can't toy with a guy's heart like that, Mando."
+
+It was the same old story. Cobb's words were so textbook flirtatious that even Din could recognize them, but there was still layer upon layer of impenetrable cues and jests and diversions and the hidden meaning of the hidden meaning. (And the aching of Din's heart.) He did not speak or understand the language of subtleties. He spoke the language of bluntness. And the occasional sarcasm that everyone else thought was still the same bluntness, which was fine by him.
+
+He glanced at his dinner, which was getting cold. His gaze returned to Cobb. He looked at the door behind the Marshal, closed, it did so automatically. He sighed.
+
+And he lifted his hand to unlock his helmet.
