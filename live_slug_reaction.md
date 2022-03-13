@@ -16,7 +16,7 @@ Oh, so that's how he wanted to play. "Freetown's perfect just the way it is." Co
 
 The aforementioned other guy was silent, but the outward twitch of his leg and the slight turn of his helmeted head towards the door said what his words didn't. *And I need to leave again right now*.
 
-"I'm kiddin'." They both knew he wasn't. "You're a busy man, Mando, I won't keep you any longer. It's not goodbye. We'll see each other soon enough, just as long as you keep yourself out of the wrong side of a blaster." Cobb nodded towards the door, standing up to see his guest off like a proper host. And to milk out any extra seconds with the Mandalorian he could get.
+"I'm kiddin'." They both knew he wasn't. "You're a busy man, Mando, I won't keep you any longer. It's not goodbye. We'll see each other soon enough, just as long as you keep yourself out of the wrong side of a blaster." Cobb nodded towards the door, standing up to see his guest off like a proper host. And to milk any extra seconds with the Mandalorian he could get.
 
 ---
 
@@ -26,7 +26,7 @@ What had Cobb wanted him to say? What was he supposed to do? Did Cobb want to le
 
 No, *Freetown's perfect just the way it is*. Cobb didn't want to leave his home. Leave his beloved home, and for *Din*? Maybe he really did want Din to stay. But he had to know that that wasn't something Din did. Stay. Settle down. It's something he didn't do, but it could be something he eventually did, in a place like Freetown, with a person like Cobb...
 
-He had been kidding, that had to be it. He had said so, and although sometimes people sometimes use that to dismiss the truth, people also sometimes tease and prod without any hidden agenda. *Dank ferrik*, how was Din supposed to pinpoint either for any given situation.
+He had been kidding, that had to be it. He had said so, and although sometimes people sometimes use that to dismiss the truth, people also sometimes tease and prod without any hidden agenda. *Dank ferrik*, how was Din supposed to pinpoint either for any given situation?
 
 He had to stop reeling, that's what he had to do. Things were the way they were, and they would continue to be that way. Cobb would help with Fett's war, he'd see him again then, and then he'd see him every time he stopped by Freetown with whatever excuse he could come up with. This time, he had managed to ask if he could buy him a drink. It would only take him a couple hundred decades to take another step in that direction. 
 
@@ -72,11 +72,11 @@ Ashamed, Din took a step back, but Cobb was none the wiser to his inner turmoil.
 
 Din cleared his throat and muttered, "Yeah," not bearing to look at Cobb anymore. His eyes searched the throne room for any distraction, and they fell on Fett, who looked like he was having a blast and raised his eyebrow when Din's head turned his way. Right. The other Mandalorian in the room. "In *public*?" he mouthed with a twitch of a smirk. The hot flush made its way from the back of his neck to Din's face.
 
-Not satisfied with his torture, Boba spoke up, loud and clear, "Well, time to get a room, Djarin." He let his words hang in the air as he stood up from his throne and stretched. Din wanted the rancor to break through the grating and pull him down into the sweet release of death. He did not dare to look at Cobb to see his reaction. "The kid is getting fussy, you need to get him to bed, and dinner will be ready soon."
+Not satisfied with his torture, Boba spoke up, loud and clear, "Well, time to get a room, Djarin." He let his words hang in the air as he stood up from his throne and stretched. Din wanted the rancor to break through the grating and pull him down into the sweet release of death. He did not dare to look at Cobb to see his reaction. "The kid is getting fussy, you need to get him to bed, and dinner will be ready soon," Boba finished innocently like his pause hadn't been planned and one of the cruelest acts in the daimyo's life.
 
 "I could eat!" Cobb sounded chirp as ever, but still Din refused to look at him. He made his way to the throne and picked up Grogu, who, indeed, was starting to yawn. He just wanted to shrink to the size of a mouse droid and scuttle away into the refuge of his private quarters, but what would Cobb think? The Marshal had come back to life, and two seconds later Din was running away from him. 
 
-Gathering his courage, he turned around to face Cobb once again. His face felt so hot he was sure his helmet was going to melt at any moment. "I'm glad you're okay," he said, pushing all of his relief and happiness through his vocoder so his voice wouldn't sound monotone like it often did.
+Gathering his courage, he turned around to face Cobb once again. His face felt so hot he was sure his helmet was going to melt at any moment. "I'm glad you're okay, Marshal," he said, pushing all of his relief and happiness through his vocoder so his voice wouldn't sound monotone like it often did.
 
 Cobb smiled and replied, "I'm glad I'm okay, too. And it's mighty great to see you again. Always a sight for sore eyes, you are."
 
@@ -94,10 +94,26 @@ Fennec snickered, a sound reserved only for her various sidebars with her boss t
 
 ---
 
-Boba kept his meals frugal as a matter of principle, so it wasn't long before plates were pushed aside and the spotchka was brought out. While the glasses were being poured and the end of a joke was being said, 8D8 shuffled out of the kitchen with a tray loaded with meat, water, and a loaf of bread.
+Boba kept his meals frugal as a matter of principle, so it wasn't long before plates were pushed aside and the spotchka was brought out. While the glasses were being poured and the end of a joke was being told, 8D8 shuffled out of the kitchen with a tray loaded with meat, water, and a loaf of bread.
 
 "I'll be taking Master Djarin's food to his room now," the droid excused himself. 
 
 Cobb drained his drink and wiped his mouth before standing up and grabbing the tray from the droid's hands. "Let me help you with that," he said. "You stay here and make sure these guys don't run out of booze."
 
 "Have fun," Fennec muttered into her drink with a smirk, and Boba's spotchka went down the wrong pipe.
+
+## Chapter 5
+Din hovered above the crib for longer than was probably considered healthy, watching every twitch of an eyelid or curl of a claw around dreamland frogs. He would've stayed there longer, too, if it weren't for the knock on the door.
+
+Din loathed being waited on hand and foot, but he knew Boba did it out of kindness and deference to his Creed, so he did not argue. And so, every time he stayed in Fett's palace, 8D8 would bring him his food, announcing in his robotic voice that he had brought forth dinner for "Master Djarin".
+
+"Room service!" a playful drawl called, and Din's hand froze over the door's controls. He swallowed thickly, and opened the door.
+
+Cobb, leaning as always, balancing a tray on one hand. "Master Djarin," he mocked as he offered Din his dinner.
+
+"Please don't."
+
+"You still call me "Marshal", and I had to learn your name from the random daimyo who dragged me into his bacta tank and his right-hand assassin."
+
+Din sighed and accepted the offered tray. "Thank you..." He swallowed again. "... Cobb."
+
