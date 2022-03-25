@@ -160,10 +160,30 @@ As incomprehensible as that string of words was, Din understood he was being giv
 
 There was a third option.
 
-Because of this unexpected movement of Din's hand, this unpredicted arch forwards, Cobb's grip loosened until his hand had slipped away completely by the time Din's palm was on his cheek. He was frozen. He had no smirk to offer, no chuckle or wink.
+Because of this unexpected movement of Din's hand, this unpredicted arch forwards, Cobb's grip loosened in surprise until his hand had slipped away completely by the time Din's palm was on his cheek. He was frozen. He had no smirk to offer, no chuckle or wink.
 
 The Marshal's skin felt warm even through the coarse leather of Din's gloves. And if he let his imagination take charge, he could almost feel the rough stubble and the softness of flesh underneath. Starting to panic at Cobb's uncharacteristic rigidness, Din moved his thumb minutely, enough to brush over a cheekbone, and the Marshal came back to life.
 
 Cobb tilted his head into Din's hands, looking at the Mandalorian through lowered lashes. Again, he knew that there was rationally no way to comprehend what was going on underneath that impenetrable helmet, but he felt Din return his gaze, he felt the tremendous amount of anxiety the small gesture had caused him. He turned his head further into the palm cupping his face. He pressed a kiss into the glove's leather and murmured the end of a thought that always came to him when he considered what was underneath the helmet, "And there's more than one way to kiss."
 
-Din knew that Cobb probably thought he was about to run away when he pulled his hand away, so he tried to move as quickly as possible. Without breaking the eye contact that Cobb could not possibly know existed, Din pulled his glove off with his left hand and placed it behind him where he guessed the table was. If it actually landed on the table or not was a problem for later. For now, his only concern were the rush of sensations shooting through him the moment he returned his now bare hand to the Marshal's face.
+Din knew that Cobb probably thought he was about to run away when he pulled his hand away, so he tried to move as quickly as possible. Without breaking the eye contact that Cobb could not possibly know existed, Din pulled his glove off with his left hand and placed it behind him where he guessed the table was. If it actually landed on the table or not was a problem for later. For now, his only concern were the rush of sensations shooting through as he returned his now bare hand to the Marshal's face.
+
+His hand hovered close enough to feel the tickle of Cobb's stubble and the warmth emanating from his cheek, but he did not dare to bring it closer. It would be too much. Too naked, too intense. 
+
+Cobb's soft smile conveyed more patience than Din thought he deserved as he raised his left hand to cover Din's right, and there it was, flesh on flesh, an acutely foreign experience to Din. He felt like he had thrust his hand into a nest of live wires, but he refused to let his anxiety take over. 
+
+Once he felt Din relax, Cobb continued. He placed his right hand on Din's wrist to steady the Mandalorian's hand as gently as he could, hoping that the cold bite of the metal would not be uncomfortable. More slowly this time to give Din the chance to stop him, he began placing fleeting kisses on the other's palm.
+
+The heat in his chest and on his face was so intense Din felt that the air he inhaled was incapable of reaching his lungs. The Marshal's lips were cool and his mechanical hand felt ice cold on Din's burning skin, but it was not enough to stop the sensation that his entire hand, his entire body, was about to burst into flames. It was too much. It was beyond too much. Din was going to combust, his heart was going to split at the seams, or worse yet, he was going to start spilling his feelings and end up proposing over a handful of chaste kisses.
+
+"Cobb..." He also needed a drink of water, judging by his raspy throat. 
+
+Cobb lowered their joint hands to his chest. "Everything alright there, partner?"
+
+*Nothing is alright in several different ways.* "I..." *I never want to ever leave your side again.* *I want you to come with me.* *I want to stay.* *I can't stay.* *If I ever lose you again...*. There wasn't much space left between him and the Marshal, but he still took a step forwards to make it minimal and pressed his forehead to Cobb's. He had yet to explain the significance, but it didn't feel dishonest anymore. "I can't ask you to leave your home," he finally said.
+
+Cobb ran his thumb over the hand he continued to hold against his chest (and didn't have the intention of releasing any time soon). "Have you *tried* asking me?"
+
+## Chapter 7
+
+Din stepped back at this, his hand (at Cobb's great dismay) slipping from the Marshal's grip. What was Cobb trying to say to him? Was he joking again? It wasn't a confirmation of his answer in case Din were to ask him, so if Din *did* ask him, the possibility of him saying no still existed, and Din would once again be the fool that didn't understand subtleties. "But Freetown..." was all he managed.
