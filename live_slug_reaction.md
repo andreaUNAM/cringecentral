@@ -154,3 +154,16 @@ Or at least he would've unlocked his helmet if his hand had reached the latch, b
 
 And Din didn't offer any resistance, neither in pulling away nor in withholding answers. "My covert..." he began, "I took off my helmet. To save the child. They said I'm no longer a Mandalorian. It doesn't matter anymore."
 
+"And the rill convinced the jerba it was a bocatt, but it kept giving milk," was the bizarre reply from the Marshal. 
+
+As incomprehensible as that string of words was, Din understood he was being given a choice: his hand could keep going towards his nape, or he could lower it and the whole thing would be forgotten.
+
+There was a third option.
+
+Because of this unexpected movement of Din's hand, this unpredicted arch forwards, Cobb's grip loosened until his hand had slipped away completely by the time Din's palm was on his cheek. He was frozen. He had no smirk to offer, no chuckle or wink.
+
+The Marshal's skin felt warm even through the coarse leather of Din's gloves. And if he let his imagination take charge, he could almost feel the rough stubble and the softness of flesh underneath. Starting to panic at Cobb's uncharacteristic rigidness, Din moved his thumb minutely, enough to brush over a cheekbone, and the Marshal came back to life.
+
+Cobb tilted his head into Din's hands, looking at the Mandalorian through lowered lashes. Again, he knew that there was rationally no way to comprehend what was going on underneath that impenetrable helmet, but he felt Din return his gaze, he felt the tremendous amount of anxiety the small gesture had caused him. He turned his head further into the palm cupping his face. He pressed a kiss into the glove's leather and murmured the end of a thought that always came to him when he considered what was underneath the helmet, "And there's more than one way to kiss."
+
+Din knew that Cobb probably thought he was about to run away when he pulled his hand away, so he tried to move as quickly as possible. Without breaking the eye contact that Cobb could not possibly know existed, Din pulled his glove off with his left hand and placed it behind him where he guessed the table was. If it actually landed on the table or not was a problem for later. For now, his only concern were the rush of sensations shooting through him the moment he returned his now bare hand to the Marshal's face.
