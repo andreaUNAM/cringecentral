@@ -6,7 +6,7 @@ Cobb stretched his legs under the table, letting his calf press against cold bes
 
 Cobb had to chuckle at that. The man was magnetic. He didn't realize it—he refused to realize it—but he was magnetic. He probably thought that with his armour and his Creed and his choice of career he was nothing but a distant, unreachable presence. But folks didn't need to see his face to see he was a kind man, to see in him an ally or even a friend. To understand his deadpan sense of humor. To imagine the twist of an irresistible smile.
 
-"But I do consider you my friend, Marshal," Mando added more softly (perhaps he had mistaken his laugh for agreement of his perceive lonely existence). "And you are a great warrior, just like the rest of your townsfolk."
+"But I do consider you my friend, Marshal," Mando added more softly (perhaps he had mistaken his laugh for agreement of his perceived lonely existence). "And you are a great warrior, just like the rest of your townsfolk."
 
 Tapping his finger against the table to dissipate the sudden rush of emotions, Cobb looked down at his empty glass. "I'm happy to hear we are more than just some backwater pit stop to you, with your high-stake turf wars and galaxy-wide Jedi searches," he said, trying to strike the perfect balance in his tone between being earnest and not showing his hand. At least not fully. At least not yet.
 
@@ -72,7 +72,7 @@ Ashamed, Din took a step back, but Cobb was none the wiser to his inner turmoil.
 
 Din cleared his throat and muttered, "Yeah," not bearing to look at Cobb anymore. His eyes searched the throne room for any distraction, and they fell on Fett, who looked like he was having a blast and raised his eyebrow when Din's head turned his way. Right. The other Mandalorian in the room. "In *public*?" he mouthed with a twitch of a smirk. The hot flush made its way from the back of his neck to Din's face.
 
-Not satisfied with his torture, Boba spoke up, loud and clear, "Well, time to get a room, Djarin." He let his words hang in the air as he stood up from his throne and stretched. Din wanted the rancor to break through the grating and pull him down into the sweet release of death. He did not dare to look at Cobb to see his reaction. "The kid is getting fussy, you need to get him to bed, and dinner will be ready soon," Boba finished innocently like his pause hadn't been planned and one of the cruelest acts in the daimyo's life.
+Not satisfied with his torture, Boba spoke up, loud and clear, "Well, time to get a room, Djarin." He let his words hang in the air as he stood up from his throne and stretched. Din wanted the rancor to break through the grating and pull him down into the sweet release of death. He did not dare to look at Cobb to see his reaction. "The kid is getting fussy, you need to get him to bed, and dinner will be ready soon," Boba finished innocently like his pause hadn't been planned and one of the cruelest acts in the former bounty hunter's life.
 
 "I could eat!" Cobb sounded chirp as ever, but still Din refused to look at him. He made his way to the throne and picked up Grogu, who, indeed, was starting to yawn. He just wanted to shrink to the size of a mouse droid and scuttle away into the refuge of his private quarters, but what would Cobb think? The Marshal had come back to life, and two seconds later Din was running away from him. 
 
@@ -147,4 +147,10 @@ It was the same old story. Cobb's words were so textbook flirtatious that even D
 
 He glanced at his dinner, which was getting cold. His gaze returned to Cobb. He looked at the door behind the Marshal, closed, it did so automatically. He sighed.
 
-And he lifted his hand to unlock his helmet.
+And he lifted his hand and unlocked his helmet.
+
+## Chapter 6
+Or at least he would've unlocked his helmet if his hand had reached the latch, but with reflexes trained by a lifetime of quick-draws, Cobb grabbed him by the wrist when he was halfway there. He said nothing. He just held him, looked at him, and raised one inquisitive eyebrow.
+
+And Din didn't offer any resistance, neither in pulling away nor in withholding answers. "My covert..." he began, "I took off my helmet. To save the child. They said I'm no longer a Mandalorian. It doesn't matter anymore."
+
