@@ -187,3 +187,33 @@ Cobb ran his thumb over the hand he continued to hold against his chest (and did
 ## Chapter 7
 
 Din stepped back at this, his hand (at Cobb's great dismay) slipping from the Marshal's grip. What was Cobb trying to say to him? Was he joking again? It wasn't a confirmation of his answer in case Din were to ask him, so if Din *did* ask him, the possibility of him saying no still existed, and Din would once again be the fool that didn't understand subtleties. "But Freetown..." was all he managed.
+
+Cobb sighed. "Listen, I'm gonna be honest. If you had asked me a little while ago, I would've said no. Broken my heart, it would've, but I would've chosen to stay with my town. But now..." He glanced down at his right arm, curling and uncurling his pinkie to convince himself it was his, before sighing again. "I think I should start to consider retirement."
+
+This was clearly a very delicate subject for the Marshal, and Din understood why. Folks like them never consider retirement; they keep going until the wrong guy sends them into one eternal retirement you never come back from. But Din had considered retirement, once with Omera, another time with Cobb. And now Cobb was considering it, too. Because of Din. *With* Din. Sure, if he left with Din, it wouldn't be one peaceful retirement, but the sentiment remained: stepping back from his duties to be with him. Din had no idea how to respond to this, and his eyes were starting to sting with gathering tears.
+
+Where people often only saw an unresponsive mask of beskar, Cobb always acted like he saw every inch of his emotions. He chuckled and patted his chestplate. "Now, now, before you take what's left of my sanity with your sweet, sweet smile: it's not a *right away* kind of thing." The hand on Din's chest started tracing random patterns on the smooth metal as Cobb's mind wandered off to future plans. "There's some things I have to settle, I certainly do need a new deputy to leave in my stead, someone's got to continue relations with the tuskens..." He lifted his gaze to Din's visor. "But it's a *soon* kind of thing, I promise." He was one perceptive son of a mother, and the gesture that Din had done twice now had not gone unnoticed. With a soft touch to the back of Din's helmet, he pressed their foreheads together. "I'll be waiting for you right here, you know that."
+
+The surprise at Cobb's Keldabe kiss was washed away by the sour taste that rushed to Din's mouth. "Cad Bane took that certainty away from me," he growled.
+
+Cobb gave the back of his helmet a reprimanding tap. "Hush. None of that right now." He was right. Din didn't want to speak of that anymore. He just wanted to put his arms around the Marshal's waist and hold him, alive, tangible, safe, *his*, now and forever. His thoughts were getting a bit too intense again.
+
+"You need to eat your dinner."
+
+"Don't want to."
+
+Cobb blew air out of his nose. "You and your son are very different." 
+
+"I don't know where he gets it," Din replied, feeling his smile grow even wider.
+
+Cobb gave out a chuckle (he always got the sarcasm no one else seemed to get), and as he lifted his head, his hands slipped from the back of Din's head to his neck, sliding over the fabric until they landed on his shoulders. "I'll leave you to it," he said, but didn't move away. "Can I...?"
+
+In some remote part of his brain, Din considered that the wise thing to do was let the Marshal finish his request, or at least say a few words beyond "can I" to gauge its nature. He didn't care. "Yes. Anything," he blurted out.
+
+Looking quite amused at his interjection, Cobb reached around to undo his kerchief and placed it around Din's neck, the red fabric stark against the silver beskar. As he tied it securely, he said, "So you don't forget you've got someone here waiting for you when you go off in your next big adventure."
+
+A heavy knot formed in the back of Din's throat, and a few of the tears finally fulfilled their threat and ran down his cheeks. It was almost like Cobb *knew*. It wasn't just the significance of the item as Cobb's staple accessory, it was... well, it was red. Obviously, Din couldn't be sure, but he decided it was the same red he had stopped wearing many years ago. Maybe it was time to start wearing it again. "Wouldn't dream of it," he whispered in reply.
+
+Finally managing to separate himself from Din, Cobb stepped back to admire the way the accessory looked on its new owner. "Yup, you are not getting rid of me any time soon, Mando."
+
+"Whatever will I do." Din knew that Cobb knew, *somehow*, that he had the stupidest grin on his face as he watched him leave. 
