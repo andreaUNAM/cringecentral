@@ -214,7 +214,7 @@ Looking quite amused at his interjection, Cobb reached around to undo his kerchi
 
 A heavy knot formed in the back of Din's throat, and a few of the tears finally fulfilled their threat and ran down his cheeks. It was almost like Cobb *knew*. It wasn't just the significance of the item as Cobb's staple accessory, it was... well, it was red. Obviously, Din couldn't be sure, but he decided it was the same red he had stopped wearing many years ago. Maybe it was time to start wearing it again. "Wouldn't dream of it," he whispered in reply.
 
-Finally managing to separate himself from Din, Cobb stepped back to admire the way the accessory looked on its new owner. "Yup, you are not getting rid of me any time soon, Mando."
+Finally managing to separate himself from Din, Cobb stepped back to admire the way the accessory looked on its new owner. "Yup, you ain't getting rid of me any time soon, Mando."
 
 "Whatever will I do." Din knew that Cobb knew, *somehow*, that he had the stupidest grin on his face as he watched him leave. 
 
@@ -237,7 +237,7 @@ He stared through his ship's open door at the cargo box that had arrived from Fr
 
 Boba's voice broke his train of thought. "I've got a parting gift for you, Mando." He could always use a new weapon, although he wished Fett would stop making an event out of this because it was worsening his anxiety. "Well," Boba continued, "it's not a gift for *you*, but I figured you needed the extra push, so I did you the favor of taking the first steps." He reached into one of the pouches on his belt and pulled out a small package. He handed it over to Din as he said, "The rest is up to you."
 
-It was a belt buckle. Din unwrapped it facedown, so the first thing he saw was the latches used to secure it to the belt. The craftsmanship looked exquisite. Gingerly, he grabbed it between thumb and index finger and turned it over. All polished silver, with a black mudhorn carved in the center, the same design as the one on his shoulder. He'd be lying if he said he hadn't been thinking of something similar ever since Cobb had stepped out of his room that night. "Thank you, but... Isn't it too much?"
+It was a belt buckle. Din unwrapped it facedown, so the first thing he saw was the latches used to secure it to the belt. The craftsmanship looked exquisite. Gingerly, he grabbed it between thumb and index finger and turned it over. All polished silver, with a black mudhorn carved in the center, the same design as the one on his pauldron. He'd be lying if he said he hadn't been thinking of something similar ever since Cobb had stepped out of his room that night. "Thank you, but... Isn't it too much?"
 
 Boba rubbed the bridge of his nose. "This man is fiercely loyal to his town and his people, and yet he's willing to leave that behind and go live in a flying tin can with you and bounce around the Outer Rim picking up the galaxy's scum. Djarin... you are impossible. And rather thick up in the skull area."
 
@@ -251,5 +251,16 @@ Cobb's grin lit up the dim hangar. "Me too."
 
 Din knew that the more he thought about exactly how to do it, the less likely it would be he'd actually do it, so he just went for it. "Here." He thrust his fist forwards unceremoniously. "For you."
 
-"Ooh, I love presents." When Cobb reached out, Din let the buckle fall into his waiting hand.
+Cobb raised his eyebrows. "A present? Interesting." Din opened his hand and held his breath as Cobb took the buckle and examined it. There was silence, too much silence, except for the blood pounding in Din's ears. Finally, "It's lovely, Din," in a soft whisper.
 
+"It's for, uh, it's so..." There was no turning back now. "So you're part of the clan. Officially." His left eye seemed to be developing a twitch from all his pent up anxiety. Quickly, he added, "If you want to, of course. And nothing has to change if you don't. I don't want you to feel pressured—"
+
+When Cobb lifted his gaze from the buckle, Din realized he was crying. "Nothing," he interrupted Din's ramblings, "and I mean *nothing*, would make me happier, Mando." Wiping his eyes, Cobb unclasped the simple buckle he was wearing and replaced it with the new one. "You ain't getting rid of me any time soon."
+
+Din placed his hands on the former Marshal's hips, all of his anxiety washing away with every passing second of seeing Cobb wearing his clan's crest. "You're the one that's stuck with us," he chuckled. "We've been told that we are a quite a handful." He leaned forwards, and Cobb met him halfway in the Keldabe kiss. At some point during what Din still got butterflies calling "their relationship", he had explained to Cobb what exactly it meant to him to press his forehead against someone else's, and Cobb seemed to enjoy ribbing him about that first stolen kiss.
+
+Half of the aforementioned handful had apparently decided that too much was happening without his direct involvement because Din felt a sharp tug on his cape. "Patoo! Patoo!" Grogu called, and across the hangar, Fennec agreed, "Yeah, tell 'em to save it for the honeymoon, kid!"
+
+Cobb started laughing and bent down to pick up Grogu, who squealed in delight as Cobb threw him into the air and caught him again, the lights glinting off his new buckle with every movement.
+
+*His clan of three.*
