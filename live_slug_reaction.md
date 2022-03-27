@@ -166,7 +166,7 @@ The Marshal's skin felt warm even through the coarse leather of Din's gloves. An
 
 Cobb tilted his head into Din's hands, looking at the Mandalorian through lowered lashes. Again, he knew that there was rationally no way to comprehend what was going on underneath that impenetrable helmet, but he felt Din return his gaze, he felt the tremendous amount of anxiety the small gesture had caused him. He turned his head further into the palm cupping his face. He pressed a kiss into the glove's leather and murmured the end of a thought that always came to him when he considered what was underneath the helmet, "And there's more than one way to kiss."
 
-Din knew that Cobb probably thought he was about to run away when he pulled his hand away, so he tried to move as quickly as possible. Without breaking the eye contact that Cobb could not possibly know existed, Din pulled his glove off with his left hand and placed it behind him where he guessed the table was. If it actually landed on the table or not was a problem for later. For now, his only concern were the rush of sensations shooting through as he returned his now bare hand to the Marshal's face.
+Din knew that Cobb probably thought he was about to run away when he pulled his hand away, so he tried to move as quickly as possible. Without breaking the eye contact that Cobb could not possibly know existed, Din pulled his glove off with his left hand and placed it behind him where he guessed the table was. If it actually landed on the table or not was a problem for later. For now, his only concern were the rush of sensations shooting through him as he returned his now bare hand to the Marshal's face.
 
 His hand hovered close enough to feel the tickle of Cobb's stubble and the warmth emanating from his cheek, but he did not dare to bring it closer. It would be too much. Too naked, too intense. 
 
@@ -180,7 +180,7 @@ The heat in his chest and on his face was so intense Din felt that the air he in
 
 Cobb lowered their joint hands to his chest. "Everything alright there, partner?"
 
-*Nothing is alright in several different ways.* "I..." *I never want to ever leave your side again.* *I want you to come with me.* *I want to stay.* *I can't stay.* *If I ever lose you again...*. There wasn't much space left between him and the Marshal, but he still took a step forwards to make it minimal and pressed his forehead to Cobb's. He had yet to explain the significance, but it didn't feel dishonest anymore. "I can't ask you to leave your home," he finally said.
+*Nothing is alright in several different ways.* "I..." *I never want to leave your side again.* *I want you to come with me.* *I want to stay.* *I can't stay.* *If I ever lose you again...*. There wasn't much space left between him and the Marshal, but he still took a step forwards to make it minimal and pressed his forehead to Cobb's. He had yet to explain the significance, but it didn't feel dishonest anymore. "I can't ask you to leave your home," he finally said.
 
 Cobb ran his thumb over the hand he continued to hold against his chest (and didn't have the intention of releasing any time soon). "Have you *tried* asking me?"
 
@@ -206,7 +206,7 @@ Cobb blew air out of his nose. "You and your son are very different."
 
 "I don't know where he gets it," Din replied, feeling his smile grow even wider.
 
-Cobb gave out a chuckle (he always got the sarcasm no one else seemed to get), and as he lifted his head, his hands slipped from the back of Din's head to his neck, sliding over the fabric until they landed on his shoulders. "I'll leave you to it," he said, but didn't move away. "Can I...?"
+Cobb gave out a chuckle (he always got the humor no one else seemed to get), and as he lifted his head, his hands slipped from the back of Din's head to his neck, sliding over the fabric until they landed on his shoulders. "I'll leave you to it," he said, but didn't move away. "Can I...?"
 
 In some remote part of his brain, Din considered that the wise thing to do was let the Marshal finish his request, or at least say a few words beyond "can I" to gauge its nature. He didn't care. "Yes. Anything," he blurted out.
 
@@ -217,3 +217,39 @@ A heavy knot formed in the back of Din's throat, and a few of the tears finally 
 Finally managing to separate himself from Din, Cobb stepped back to admire the way the accessory looked on its new owner. "Yup, you are not getting rid of me any time soon, Mando."
 
 "Whatever will I do." Din knew that Cobb knew, *somehow*, that he had the stupidest grin on his face as he watched him leave. 
+
+## Chapter 8
+"Hm, I don't think they have a sign for "frog", seeing as there's no such thing around here, but we can improvise."
+
+With Grogu's big eyes on him and making sure to keep index and middle fingers and ring and pinkie fingers together to imitate the child's claws, Din made a modified version of the tusken's sign for "rat". As he moved his hand in front of his face, he added an exaggerated hopping motion. "Frog." He repeated the gesture. "Frog." On his lap, Grogu imitated him. "You're a natural, little one." 
+
+He was sitting on some boxes in the hangar at Fett's palace as a handful of droids fretted over the last checks on his ship. He would've liked to have done them himself, but Grogu had been so polite in using his sign for "lesson" (after banging his little fist on his helmet to get his attention), how could he possibly deny him? 
+
+"What else can I teach you?" The first sign he had taught him had been "ball", alongside the signs for "please" and "thank you", which Grogu loved to pretend he never learned. After that came signs to ask for help, "yes", "no", "eat", "want", "bathroom", "hurt", and "sleep". "Lesson" came at Bridger's request, and Din had thrown in "teacher" (the tusken tribes did not use "master" with a positive connotation, so it was better to use an alternative). 
+
+Boba patted Din's shoulder as a greeting before crouching down to be face to face with Grogu. "How about this one, hm?" He slid the index and middle finger of his right hand in a V shape over his outstretched left palm back and forth; the sign for "green". "Bo-ba," he said slowly, but the kid stared at him blankly. Just like Din had done, he repeated the sign and his name. "Nothing? Alright, then. I'll try not to take that personally, *ad'ika*." He pushed himself back to a standing position with a groan. Now addressing Din, "Ready for this?" 
+
+Din adjusted Grogu against his hip as he stood up, too, but when the child squirmed and signed, "No, no, no," he placed him on the floor to roam about freely. "Yeah," he answered, trying to sound nonchalant. "It's just another trip to another job." It came out like reassurance, which Boba didn't need, so it was rather obvious he was reassuring himself.
+
+Fett rolled his eyes. "You know it's not," he teased, and pinched the fraying edges of the kerchief around Din's neck. Din swatted his hand away. All this time, he had only taken it off when it was absolutely necessary, and when he did, he always treated it with the same reverent care awarded to his armor.
+
+He stared through his ship's open door at the cargo box that had arrived from Freetown this morning. "I think I'm ready." He was more than ready. Ever since he had arrived back on Tatooine after his last job and a very important holo-call with Cobb, he had been bubbling with excitement. And anxiety. More so than usual, which was saying a lot. But the excitement was still stronger.
+
+Boba's voice broke his train of thought. "I've got a parting gift for you, Mando." He could always use a new weapon, although he wished Fett would stop making an event out of this because it was worsening his anxiety. "Well," Boba continued, "it's not a gift for *you*, but I figured you needed the extra push, so I did you the favor of taking the first steps." He reached into one of the pouches on his belt and pulled out a small package. He handed it over to Din as he said, "The rest is up to you."
+
+It was a belt buckle. Din unwrapped it facedown, so the first thing he saw was the latches used to secure it to the belt. The craftsmanship looked exquisite. Gingerly, he grabbed it between thumb and index finger and turned it over. All polished silver, with a black mudhorn carved in the center, the same design as the one on his shoulder. He'd be lying if he said he hadn't been thinking of something similar ever since Cobb had stepped out of his room that night. "Thank you, but... Isn't it too much?"
+
+Boba rubbed the bridge of his nose. "This man is fiercely loyal to his town and his people, and yet he's willing to leave that behind and go live in a flying tin can with you and bounce around the Outer Rim picking up the galaxy's scum. Djarin... you are impossible. And rather thick up in the skull area."
+
+From the hangar's open gate came a lean silhouette, backlit by the desert's harsh lighting, hand raised in a wave. Boba figured it was time to give them some space. "Keep your clan growing, *ner vod*," he said, and knocked his vambrace against Din's before walking off to a pile of junk he was going to pretend to be busy with.
+
+"Uh, hi." Cobb had his thumbs hooked on his belt as he swayed back and forth on the balls of his feet. Din noticed that, indeed, his Marshal buckle was gone, and the anxiety climbed higher up his throat. "Ready to go?"
+
+The buckle dug into the fist closed around it. He really wished people would stop asking him that. "Um." He cleared his throat. "Yeah. Yes. Ready."
+
+Cobb's grin lit up the dim hangar. "Me too."
+
+Din knew that the more he thought about exactly how to do it, the less likely it would be he'd actually do it, so he just went for it. "Here." He thrust his fist forwards unceremoniously. "For you."
+
+"Ooh, I love presents." When Cobb reached out, Din let the buckle fall into his waiting hand.
+
