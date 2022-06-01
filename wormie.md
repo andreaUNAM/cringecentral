@@ -64,3 +64,34 @@ Force. That was fast. So very, very fast. And his father was going to be with hi
 "Will you stop fidgeting over there? Help me with these boxes! I'm not running a leisure resort here, do something if you're going to be hanging around."
 
 He lifted the boxes directly with his hands and even pretended to struggle a bit. Either the woman was being discreet (seemed unlikely) or she truly had not recognized him. Either way, he didn't want to draw any attention. 
+
+## Chapter 3
+By the time the ship arrived, the boxes had long been moved, emptied, and moved again. Luke was sitting on top of them, his feet dangling without touching the ground. It was the first ship that had arrived after his own, but he had no way of knowing if it was the one he was waiting for.
+
+The first person to walk out of it made him think that it was not, because he was a stranger. He swaggered towards Luke, thumb hooked on a lopsided belt. "You hired a helper, Peli?" the stranger asked towards him, but not at him. He eyed Luke up and down intensely, and Luke quickly did the same even though it was not necessary to asses the situation. The stranger was handsome, handsome enough to make Luke's stomach flip. He also seemed to be about twice his age, and that was a can of worms Luke constantly chose _not_ to open. There was a symbol on his belt buckle that Luke swore he had seen before, but couldn't place where. 
+
+Even with the initial question, it wasn't certain that the stranger hadn't recognized him. Judging by the intensity of his gaze, if he had, Luke would have to brace himself for a fight. His fingers twitched over his lightsaber through the robe. 
+
+"What's your name, kid?"
+
+Luke reached out through the Force and found only honesty. Not recognized once again. Blessed anonymity, he might just end up liking being here after all. "Luke," he answered simply. A bit of a risk, but it made the anonymity taste even sweeter when the stranger did not react.
+
+"Well, Luke, are you Peli's new helper or not?"
+
+The woman (Peli, apparently, she hadn't shared her name with Luke before) replied for him. "Please. Like I'd hire some fancy-looking offworlder." Strangely, the remark stung. "He's just here waiting for— Ah, speak of the devil!"
+
+The Mandalorian shone in the Tatooine suns. There was an energy to him, like all the noise in the galaxy suddenly stopped and tuned themselves to his beat, to draw everything in, to make him the center of it all. And there was that symbol, right over his shoulder. And in his arms... oh, there he was. Luke's heart fluttered when he felt the Force signature of the sleeping child mix with his own. "Jedi," was all the Mandalorian said, and Luke saw the stranger's eyebrows rise.
+
+"Hello again," Luke greeted, controlling his tone. He might feel like a foolish little boy, but had enough pride to at least appear calm and professional. 
+
+No one else said anything until the stranger cleared his throat. "Uh, alright. I, uh, thought we had already gone through the introductions, but I'm gonna need a bit more information here, please."
+
+"Right." With the hand not cradling Grogu, the Mandalorian gestured towards Luke. "This is Luke Skywalker, Grogu's first Jedi teacher." First. That meant there was a second. Or more. "This," he placed a hand on the stranger's shoulder, "is Cobb Vanth, former Marshal of Freetown, formerly Mos Pelgo."
+
+Vanth gave Luke his hand to shake. "Also his husband, by the way, dunno why he left _that_ out." Oh, fantastic. The man he had been drooling over was his former student's stepfather. Excellent. 
+
+There was a deep fondness in his voice and the energy coming from him when the Mandalorian said, "I'm still not used to saying it, specially not in Basic, _cyar'ika_."
+
+The Mandalorian's fondness was matched by the warmth in Vanth's eyes when he turned to look at him. "I'm still not used to being it, sweetheart."
+
+Luke all of a sudden felt very alone in the great expanse of the Galaxy. He decided to change the subject to even more painful waters. "I've come to apologize, Mandalorian."
