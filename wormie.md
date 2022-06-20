@@ -82,7 +82,7 @@ The woman (Peli, apparently, she hadn't shared her name with Luke before) replie
 
 The Mandalorian shone in the Tatooine suns. There was an energy to him, like all the noise in the galaxy suddenly stopped and tuned themselves to his beat, to draw everything in, to make him the center of it all. And there was that symbol, right over his shoulder. And in his arms... oh, there he was. Luke's heart fluttered when he felt the Force signature of the sleeping child mix with his own. "Jedi," was all the Mandalorian said, and Luke saw the stranger's eyebrows rise.
 
-"Hello again," Luke greeted, controlling his tone. He might feel like a foolish little boy, but had enough pride to at least appear calm and professional. 
+"Hello again," Luke greeted as he stood up, controlling his tone. He might feel like a foolish little boy, but had enough pride to at least appear calm and professional. 
 
 No one else said anything until the stranger cleared his throat. "Uh, alright. I, uh, thought we had already gone through the introductions, but I'm gonna need a bit more information here, please."
 
@@ -94,4 +94,24 @@ There was a deep fondness in his voice and the energy coming from him when the M
 
 The Mandalorian's fondness was matched by the warmth in Vanth's eyes when he turned to look at him. "I'm still not used to being it, sweetheart."
 
-Luke all of a sudden felt very alone in the great expanse of the Galaxy. He decided to change the subject to even more painful waters. "I've come to apologize, Mandalorian."
+Luke all of a sudden felt very alone in the great expanse of the Galaxy. He decided to change the subject to even more painful waters. "I've come to apologize, Mandalorian." The Mandalorian's only reply was a hum in the back of his throat, so Luke continued, "Your child shouldn't have to choose between his father and his path as a Jedi. I made a mistake." _This is Luke Skywalker, Grogu's_ first _Jedi teacher._ "I understand that the position to teach the child is no longer open—"
+
+"It's not."
+
+"—and I understand, but I still needed to apologize."
+
+The Mandalorian just stared at him for what seemed like ages. Vanth had moved away with Peli to give them some space, so it was just a one on one staring contest. Did Mandalorian armor shield the user from being probed by the Force? No, that was stupid. Luke was just making excuses for the fact that he wasn't really trying to sense the Mandalorian's emotions, afraid of what he might find. 
+
+Finally: "Okay." And the Mandalorian turned around a walked towards a waiting speeder.
+
+As Luke stood there, dumbfounded, he felt Vanth's laugh stir the hairs on his neck as he walked up from behind him. "That means he accepts your apology, and it's getting quite late, so won't you join us for dinner?" He placed a hand on the small of Luke's back (it was a testament to his training that he didn't jump at the sudden touch) and led him towards the speeder. 
+
+"It didn't mean all of that," the Mandalorian grumbled as he tucked Grogu in a makeshift bed on the front row of the speeder's seats.
+
+"Now don't be so rude, darling," his husband chided. "The kid came here from who knows what side of the Galaxy to talk to you and you are going to leave him alone in an unknown planet?"
+
+Luke cleared his throat, "Uh, actually, I grew up in Tatooine."
+
+"Huh. Well, I'll be damned," Vanth exclaimed with raised eyebrows. "I didn't know we had some fancy Jedi palace hiding somewhere in our dirtball." He patted Luke on the shoulder and hopped onto the copilot seat. Luke decided he wasn't going to correct him, and he silently climbed onto the back seat.
+
+## Chapter 4
