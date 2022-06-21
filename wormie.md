@@ -115,3 +115,40 @@ Luke cleared his throat, "Uh, actually, I grew up in Tatooine."
 "Huh. Well, I'll be damned," Vanth exclaimed with raised eyebrows. "I didn't know we had some fancy Jedi palace hiding somewhere in our dirtball." He patted Luke on the shoulder and hopped onto the copilot seat. Luke decided he wasn't going to correct him, and he silently climbed onto the back seat.
 
 ## Chapter 4
+When they drove out of town and into the waiting desert, Luke asked where they were going. Vanth explained that they had a "small place" (the Mandalorian chuckled here) where they liked to lay low and rest when they were on Tatooine. He would go visit his town in the morning, but Din and Grogu would stay there as long as they remained on the planet.
+
+Din. The Mandalorian had a name.
+
+At one point during the ride, Grogu woke up and peeked over the seat. When his eyes confirmed what he had sensed through the Force, his ears perked up. "Hey there, little one," Luke greeted, and the kid cooed in reply. 
+
+"Sit down, Grogu, or you'll fly right off," the Mandalorian—Din—said. There was no resentment in his voice, but the modulator in his helmet could be concealing it. Luke decided he was going to look at the rolling dunes instead.
+
+---
+
+He had been uneasy with the situation the entire time, but his anxiety rose when horribly familiar towers appeared in the horizon. They seemed to be riding straight for them, and it's not like there were other places around they could be heading towards. Maybe there was still time to make a turn, for their course to point them elsewhere. Luke held his breath, waiting.
+
+But Din's steering never changed. 
+
+So. Time to asses. Working theory: The Mandalorian had no intention of forgiving him, maybe even knew he was coming. Everyone else had pretended not to recognize him. They knew of his run-in with the Hutts and were about to collect a hefty sum for bringing him to whoever had taken Jabba's place. These were, after all, a bounty hunter, a stranger... and a child. Well. It was still a working theory, after all. 
+
+"Where," he repeated tensely, his fingers wrapping around his lightsaber, "are we going?"
+
+Everyone on the front seat seemed confused by his change in demeanor, which was a good sign. Or a shitty move, to keep feigning ignorance. Grogu pulled himself up again and tilted his head quizzically. Din looked away from the road (or at least his helmet turned to the side, his eyes could still be facing forwards) and replied, "The same place we were going last time you asked." Vanth just stared at him blankly, but Luke could tell his hand moved towards his holster, although that could be a precaution to protect his family. 
+
+"I believe," the former Marshal began carefully, "that our friend recognizes the ex-Hutt palace and it is not the family resort he had in mind. I can assure you: you will be safe. You have nothing to worry about."
+
+"Ex-Hutt?"
+
+"Yes, a woman we know only as the Hutt Slayer—"
+
+"I'm familiar with the story of Jabba's demise."
+
+"Well, after the old slug croaked, there's been a couple of changes in management, and the man in charge now... he's a good man." As a sign of good will, Vanth added with a friendly smirk, "Just don't say it to his face, he'll throw a fit. He has this whole persona in his mind."
+
+Luke could feel Grogu watching him. Grogu. He could trust Grogu. And from what he had gathered from his first meeting with Din, there was no deception between the pair, so if he could trust Grogu, he could trust Din. Vanth... Even if he was playing a long con, if shit hit the fan and he turned, he would be turning against Din, too, and the resulting fight— It didn't matter, it seemed very unlikely. The way they looked at each other... not something that can be pretended. 
+
+He let go of his lightsaber and relaxed in his seat. "Alright. Sorry."
+
+"No worries, partner," Vanth beamed.
+
+"We've all been there," Din agreed.
