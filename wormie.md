@@ -152,3 +152,56 @@ He let go of his lightsaber and relaxed in his seat. "Alright. Sorry."
 "No worries, partner," Vanth beamed.
 
 "We've all been there," Din agreed.
+
+## Chapter 5
+They couldn't possibly mean _him_. Surely, between their visits of Tatooine, there had been yet another "change in management" and _this man_ had taken over. And yet no one but Luke reacted as the hangar door slid open, revealing the man in green armor. He had his helmet under his arm and a warm smile on his face, but his expression soured when his eyes met Luke's. At least the feeling was mutual.
+
+"You brought me a prisoner as a present?" was the bounty hunter's greeting, and Luke's nerves were once again on edge.
+
+"Kriff, Fett, you are going to spook him," Din growled as he killed the speeder's engine.
+
+"We found a stray and brought him over for dinner, can you show some manners?" Vanth seconded. "And I just gave him my word that he'd have nothing to worry about here, don't make me look bad."
+
+Boba Fett's cold stare remained on Luke as the Jedi got off the speeder, even as he put his helmet back on. "You should've called ahead so I'd have an extra plate at my table. Only the best for Lord _Jetii_, the man who threw me into the pit."
+
+Judging by how close Din, Vanth, and Fett seemed to be, Luke expected the former two to have a significant reaction to such an accusation, but Vanth just rolled his eyes. "Yeah, yeah, you've told us a thousand times before, and if you want you can tell us again over dinner, after I've gone to the fresher." He patted Fett's shoulder and walked into the palace like he owned the place.
+
+Din finished unloading some bags from the speeder before lifting Grogu out and immediately placing him back down on the hangar floor to wander about freely, and if _that_ wasn't definite proof of the amount of trust he had on the other bounty hunter, Force knows what was. "Don't forget to say hi to Boba," he instructed distractedly, as if the child wasn't already on his way to some palace adventure. Din, on the other hand, did not forget to say hi to Boba. The two Mandalorian's clasped their hands and pulled each other close, pressing helmeted forehead against helmeted forehead. Luke barely managed to hear Din whisper, "Please behave," before they separated and started walking into the palace.
+
+Luke shuffled behind them, feeling more and more out of place.
+
+---
+
+Everything was so eerily quiet. They didn't run into anyone as they made their way deep into the palace, no teams of bounty hunters, no Twi'lek dancers, no servants, no guards. Fett caught on to the way Luke was scanning the empty hallways and gruffly explained, "I don't need as much staff as the past idiots did. A handful of trusted friends and fighters is always better than a legion of potential traitors. And I think I've finally outgrown what used to pass as _entertainment_ in these places." 
+
+Despite the clear disgust in Fett's voice in that last statement, Luke's jaw tightened. "_Entertainment_ like my sister?"
+
+Fett's helmet impeded Luke from seeing the surprise on his face, but way his steps faltered gave it away. "That was your sister?"
+
+Luke decided he was done with the small talk, lowering his hood and putting his hands up his sleeves. If Vanth had been with them instead of getting a head start, he would've probably tried to ease the tension with a joke and smirk. His husband, on the other hand, was silent as was his custom, which Luke preferred at the moment. This way he could process his mixed feelings about Fett, the situation, and the fact that he was apparently memorizing the mannerisms of not one, but two married men.
+
+--- 
+
+Tensions had thankfully eased by dinnertime. Luke still felt like an intruder, but at least the situation relaxed as such an odd collection of people gathered for what can only be called a family dinner. When they had arrived at the dining room (which was much more modest than Luke had expected it to be), there was already a woman clad in leather with a long black braid sitting on the seat to the right of the head of the table. She eyed the incoming party with an unchanging serious expression, but Luke could sense that only he was unwelcome. She also gave him the feeling that she already knew who he was, the serial number of his X-Wing's engine, the address of the small apartment in Coruscant he used when he visited Leia, and the exact date his nephew was due to be born.
+
+Vanth joined them almost immediately, having found Grogu on his way. The two finally added some chatter to the previously silent room. The former Marshal was the one who ushered Luke to sit opposite to Fett, which was both a relief considering it was the farthest seat from him, and a cause for unease because it made him feel caught right in the bounty hunter's crosshair.
+
+Just as a their dinner was brought forward by a droid (an 8D-series, for some bizarre reason), the last two members of their party arrived. 
+
+"Sorry, sorry, game ran longer than expected," the young woman said as she slipped into her chair, and her companion kicked his chair back before sprawling on it. Fett just eyed them with a raised eyebrow, and Luke got the strangest recollection of Uncle Owen looking at him similarly the one and only time he had missed curfew after being dragged into a dingy cantina by Biggs.
+
+The man's cybernetics were the most obvious ones. Of course, a modification as drastic as an eye was often hard to hide, but he didn't seem to _want_ to hide it. And the woman... her left arm, bright red and uncovered. And Luke hadn't failed to notice that Vanth's right arm was also cybernetic, and he also wore it uncovered and with that stupidly attractive confidence. His gloved hand clenched around his fork, the creak of the leather concealing the whir of the mechanism. How did they do it?
+
+With her mouth full of stew, the woman with the cybernetic arm interrupted Luke's thoughts, whatever quiet conversation Vanth and the woman with the braid were having, and the soft coos between Grogu and Din as the latter convinced the former to eat his vegetables. "So, is anyone going to explain who the new guy is?"
+
+Surprisingly, Fett was the one to answer. "Just some punk who likes going around doing silly little backflips, slicing people's blasters, and getting them thrown into monster's maws." Even more surprising, his tone was light and playful. Somehow, it almost made sense. After all, he had allowed Luke to enter his palace and join them for a very intimate dinner. The reason was still wildly unclear, but it appeared that his resentment was not too sharp.
+
+This was clearly not just a dinner with close friends but a dinner with insane people, for the woman's only reply was a quiet "Huh" and a nod. Luke must've had his confusion written on his face because Fett continued, "Kid, it was me or you, and you fought to make sure it wasn't you. Nothing wrong with that. There were plenty of other people there that day that I resent much more than you." He fished a piece of meat from his stew and pointed the fork at Luke. "Like Solo. Fuck Solo." As he chewed his meat, the attention of every adult in the room did not waver away from him (Grogu was poking down the solids in his stew just to watch them float up again). "You've also got a good word for you put in by Djarin and his clan, and that is something I do not take lightly."
+
+Din nodded solemnly. Grogu blew a raspberry at a piece of potato. Vanth caught Luke's eye and winked. 
+
+Luke had to take a beat to control his fluster. "I am thankful, lord Fett, although I cannot say I have earned their good word. I made a mistake, and I abandoned my student dishonorably."
+
+Despite the helmet between them, Din's gaze was piercing. "You're here now, aren't you?"
+
+## Chapter 6
