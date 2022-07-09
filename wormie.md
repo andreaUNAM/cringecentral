@@ -205,3 +205,66 @@ Luke had to take a beat to control his fluster. "I am thankful, lord Fett, altho
 Despite the helmet between them, Din's gaze was piercing. "You're here now, aren't you?"
 
 ## Chapter 6
+Vanth left the next morning, but Luke didn't. In fact, he didn't leave for several mornings. At one point he even moved his X-Wing into the palace hangar when he had only planned to go back to Peli's to fetch his spare robes. R2 had some colorful things to say about being left under the tarp, so the whole thing was moved.
+
+No one had asked him to stay, but no one told him to leave, either. And it felt so natural to simply stay, almost a silent phantom moving around the palace while everyone else led their lives as usual. It didn't feel like special treatment from Din and the woman who he learnt was Fennec Shand, with their reserved personalities. The Mods, Luke learnt, were not as permanent a fixture at the palace as he had initially thought. Despite the peace offering during that first dinner, Fett gave him something of a cold shoulder, which Luke understood and seconded, always giving the throne room a wide berth. 
+
+And he was actively avoiding Vanth. Din he could deal with; when they spent long stretches of time in silence, each focused on their own task, it was easy for Luke not to look too closely at how the strength and love for his son radiating from Din made him feel a deep, warm peace. But Vanth... in the first few times when he came back from visiting Freetown and Luke had been so cloddish as to allow himself to spend some time with the former Marshal... how he goaded conversation out of Luke, how he laughed, how his eyes twinkled, how he held himself, how he was fiercely loyal, how he insisted Luke call him Cobb... it made Luke weak in the knees. He knew it was merely a crush and that he had an impecable training in restraint. But he had come here to make amends with his former padwan, and getting doe-eyed around said padwan's stepfather was not the way to go.
+
+So he did the mature, responsible thing and scuttled away whenever Vanth was nearby. 
+
+---
+
+He hadn't been heading anywhere in particular. The size and safety of the palace had helped him discover the wonders of walking meditations, of letting his steps keep time for his breathing as his mind retreated into the Force. Sometimes he'd even sense Ben's spirit join him and they'd both simply walk and walk. There were turns, there were stairs, both to climb and to descend, but he had no intention of remembering or planning his trajectory. Walking past the workshop should've been just like walking past all those other doors.
+
+"Hey there, stranger."
+
+Luke wondered if he could just keep walking and make something up later about Jedi trances. His heart did not agree. That was another problem: his heart very much enjoyed being treated so normally and basking under the pretense of being wooed, even if this was just a friendly married man who surely had no further intentions. Seeing how he had interrupted his concentration to analyze his heart's argument, his heart had already won. 
+
+Luke stopped, took two steps back, and turned towards the workshop's open door. "I'm sorry, I didn't see you there. Hello."
+
+Vanth had pushed aside the incredible amount of useless crap that usually covered the worktable and had his right arm stretched across it, sleeve pushed up to his shoulder. Beside his arm laid a handful of tools and a small oil container. He had removed a panel on his forearm, revealing the interior mechanisms. Right. Maintenance. Luke had been told he had to do it every now and then, but in his Jedi wisdom had decided he'd do it every never and never.  
+
+Vanth was looking at him with one of his signature grins. "Keep me company?" he asked, nodding at an empty stool.
+
+Luke could've refused. He could've accepted and been nothing but a spectator. However, a tiny voice in his head said _Well, no time like the present_ with such conviction that he found himself removing his glove and placing his mech arm on the table. Vanth had no slick comment to make, which Luke was thankful for. He just pushed the screwdriver towards the Jedi and kept on working.
+
+"So... You grew up in Tatooine?" Was Vanth trying to soothe him with small talk? Was he so obviously uncomfortable? 
+
+Luke replied with a noncommittal hum.
+
+"I really did think that Jedi were more of a Core planet thing." A soft chuckle. "In fact, I thought they were more of a Core planet _legend_ but hey, what do I know."
+
+Luke couldn't help the sudden urge to open up more than just a panel on his arm. "Actually, I was a farmer. The Jedi thing came later."
+
+Vanth paused his work for a moment to stare at Luke, which Luke did not appreciate considering his current vulnerable state. "Fascinating." And it kept getting worse. "But I'm guessing _that_ was no farming accident." And it kept. Getting. Worse. Vanth clearly expected Luke to reply, but after an awkward pause during which Luke refused to acknowledge anything that had been said, the former Marshal continued. "Mine was a simple blaster hit to the shoulder. If I hadn't been knocked over and we hadn't been in such a high-strung moment of crisis, slam, bang, a bacta patch and I'm good as new. But the time that passed, the infection... my nerves went to shit and the whole thing was useless." 
+
+Luke now felt plain rude about being so quiet. He wanted to know how Vanth was so forthcoming about his cybernetics? Well, maybe he could start by not being such a cagey bastard. "Mine was cut off in battle." Vanth simply nodded, not pressing for any more details, so Luke couldn't understand why he added in a small voice, "By my father."
+
+The breath that got stuck in Vanth's throat was deafening in the quiet workshop. "Kid..." 
+
+Luke shook his head. No, no pity. No words fumbling to understand. He wasn't done talking, though. "I'm not used to talking about it," he mumbled. "Not my father." A humorless laugh. "I talk about that plenty with my sister." And with the man himself, or at least his spirit, but that was a bit too much for workshop small talk. "I mean this, specifically." A vague wave with the repair torch he had been using to repair an old blaster scuff. "I had never been somewhere where it is _acknowledged_, let alone discussed or flaunted—" He flinched. He hadn't meant that to come out so harsh. "Sorry, that's not fair, I—"
+
+Vanth flexed his fingers, watching the mechanism through the open panel. "No, no worries, I certainly do flaunt it. It cost a pretty penny. It cost _Fett_, not me, but still..." He eyed Luke like they were sharing an inside joke. "Nothin' like a shiny trinket to win someone over, huh?" He placed his arm back on the table and replaced the panel. "And whenever you feel like talking about it, you can always come to me. I'd also suggest the Mods, but let's be honest here." This time, his eyes swept unashamedly across every inch of Luke that was visible above the table, and yup, Luke's ears were definitely burning now. "They'd eat you alive, farm boy."
+
+Both of them knew that wasn't true, but Luke had no intention of arguing. It was truly refreshing to be treated like any other mortal for once. Vanth had such an incredible power of making him drop his guard with just his voice that Luke didn't mind being watched while he finished his maintenance. He was about to finish up when he decided he'd take Vanth's offer right now. "Does it ever... hurt?" he began hesitantly, but immediately added, stumbling over his words, "Not where it connects, I mean, but, uh... Never mind. It's silly." He had once considered it related to the Force, or, more likely, just his imagination, but either way, he regretted almost saying it out loud. 
+
+"Like the hand you don't have is cramping?"
+
+Luke raised his head from his work to look at Vanth, who was smiling, but there was no mockery in that smile. "Yeah. Or like something is pricking my palm."
+
+Vanth nodded. "I get this tingling sensation from the tip of my thumb to my wrist every now and then. Drash once said she hadn't slept a wink the night before because she felt like someone was holding a lighter under her arm. No arm, no lighter, nothing she could do about it. Boy, she was _cranky_ that day." Vanth leaned back on his chair and drew out a long whistle. "And the itching!"
+
+"The itching!" Luke agreed. He couldn't remember the last time he had smiled so widely, and all over such a strange topic of conversation. "How can it possibly itch?!"
+
+Cobb shrugged and laughed. "Your guess is as good as mine."
+
+As their laughter died down, Luke finished up and wiped the oil from his hand with a dirty rag Cobb had among his supplies. "Well... this definitely feels better," he said while flexing each finger.
+
+"No shit," Cobb answered, rolling his eyes.
+
+Luke stood up with a sigh. He didn't feel a need to run away nor a need to stay at all costs. The same natural flow that accompanied him elsewhere in the palace had finally settled with Cobb, too. Now, it was time for him to go back to his meditation. Later, they'd spend more time together whenever that was meant to happen. And with some luck, Luke wouldn't blush too much. "Thank you," he said, and there were so many things he was thanking him for, but he felt it was enough. By the way Cobb nodded, it was.
+
+Right as he walked out the door, Cobb called, "Hey, you forgot your—"
+
+"Yeah, yeah, it's fine." And he meant it. He even chuckled when he heard Cobb mutter, "Alright, free glove, I guess."
