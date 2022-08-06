@@ -176,7 +176,7 @@ Everything was so eerily quiet. They didn't run into anyone as they made their w
 
 Despite the clear disgust in Fett's voice in that last statement, Luke's jaw tightened. "_Entertainment_ like my sister?"
 
-Fett's helmet impeded Luke from seeing the surprise on his face, but way his steps faltered gave it away. "That was your sister?"
+Fett's helmet impeded Luke from seeing the surprise on his face, but the way his steps faltered gave it away. "That was your sister?"
 
 Luke decided he was done with the small talk, lowering his hood and putting his hands up his sleeves. If Vanth had been with them instead of getting a head start, he would've probably tried to ease the tension with a joke and smirk. His husband, on the other hand, was silent as was his custom, which Luke preferred at the moment. This way he could process his mixed feelings about Fett, the situation, and the fact that he was apparently memorizing the mannerisms of not one, but two married men.
 
@@ -215,7 +215,7 @@ So he did the mature, responsible thing and scuttled away whenever Vanth was nea
 
 ---
 
-He hadn't been heading anywhere in particular. The size and safety of the palace had helped him discover the wonders of walking meditations, of letting his steps keep time for his breathing as his mind retreated into the Force. Sometimes he'd even sense Ben's spirit join him and they'd both simply walk and walk. There were turns, there were stairs, both to climb and to descend, but he had no intention of remembering or planning his trajectory. Walking past the workshop should've been just like walking past all those other doors.
+He hadn't been heading anywhere in particular. The size and safety of the palace had helped him discover the wonders of walking meditations, of letting his steps keep time for his breathing as his mind retreated into the Force. Sometimes he'd even sense Obi-Wan's spirit join him and they'd both simply walk and walk. There were turns, there were stairs, both to climb and to descend, but he had no intention of remembering or planning his trajectory. Walking past the workshop should've been just like walking past all those other doors.
 
 "Hey there, stranger."
 
@@ -265,6 +265,93 @@ As their laughter died down, Luke finished up and wiped the oil from his hand wi
 
 Luke stood up with a sigh. He didn't feel a need to run away nor a need to stay at all costs. The same natural flow that accompanied him elsewhere in the palace had finally settled with Cobb, too. Now, it was time for him to go back to his meditation. Later, they'd spend more time together whenever that was meant to happen. And with some luck, Luke wouldn't blush too much. "Thank you," he said, and there were so many things he was thanking him for, but he felt it was enough. By the way Cobb nodded, it was.
 
-Right as he walked out the door, Cobb called, "Hey, you forgot your—"
+Right as he walked out the door, Cobb called, "Hey, you left your—"
 
 "Yeah, yeah, it's fine." And he meant it. He even chuckled when he heard Cobb mutter, "Alright, free glove, I guess."
+
+## Chapter 7
+It became clear how attached he was getting to the place when he adopted a favorite spot for his morning meditations. It was on a plateau among the ridges that rose behind the palace. The twin sunrise looked spectacular from there, and just being out in the open on his home planet made inner peace come easy. 
+
+The problem was that it was such a good spot that it made sense that Luke wasn't the only one who loved it. The fourth morning after he had discovered it, he sensed Fett approaching. He opened his eyes and watched as the bounty hunter came up the path, helmet under his arm, and visibly startle when he saw Luke perched on his rock.
+
+Neither man moved as they waited for the other to state his case. Seeing as there was no case to be explained, the silence hung thick. Finally, Luke decided to venture a guess that might get him shot. "Here to see the sunrise?"
+
+Fett squared his shoulders as if he were preparing for a fight. "Yeah," he replied drily. He turned towards the horizon and nothing else was said.
+
+While Luke sat on his rock every morning to meditate, Fett's visits were not as often or as scheduled. Nevertheless, whenever he showed up, it was the same routine: they didn't speak or even acknowledge each other. It was through this silent agreement of mutual disregard that they were able to share the small plateau. Luke would never point out that Fett was practically meditating, too, and he didn't admit to himself that the bounty hunter's introspection soothed him, too.
+
+---
+
+Luke felt the man's presence before he heard the boots crunching on the sand. Fett stopped a few meters away, which was the first change to their routine. Usually, he'd walk all the way to the edge to have the best view, and where Luke could catch a glimpse of him if he peeked out of the corner of his eye. The change intrigued Luke, so he decided to poke at it to see how far it would go. "Yes?" he asked, turning his head towards Fett and stretching his legs out towards the edge of the cliff. 
+
+"I thought you were in a call," Fett replied curtly. "Heard you talking to someone, or so I thought."
+
+Oh. Right. That might explain the change in his behavior. "I..." Fett was clear about not caring about "_Jetii_ crap" and was very vocal about his dislike of certain Jedi of old. Better not to go into detail when it wasn't strictly necessary. "I guess you could say that, yes, but it's okay."
+
+Order seemed to be restored, because Fett walked to his usual spot and was silent for a few beats, but then he looked down at Luke and said, "You really are making yourself at home, aren't you?"
+
+Ah. Of course. Fett's patience had finally worn thin. Luke wasn't going to look for a fight. He had done what he had come to do: he had made amends. If it was time to leave, then so be it. When he turned to answer, he noticed that Fett was making a sour face.
+
+"Well, that came out shitty," the bounty hunter muttered then tried again, "You seem happy here, Jedi." A pause. He sighed. "That also sounded like a threat, didn't it?"
+
+"A bit, yeah," Luke answered, tilting his head. What was he possibly getting at?
+
+Almost like he could read Luke's thoughts through the Force, Fett said, "I don't know what I'm doing here." With a grunt, he sat down next to Luke's rock, making the situation even more bizarre. "I didn't lie that first night. I hold no particular resentment towards you, specifically. Jedi in general, though... not my favorite people."
+
+"I know," Luke said softly, and he did know. Obi-Wan had told him. 
+
+Fett nodded, but it was hollow, as if he thought that Luke only saw it as a petty feud. "But still," he continued, "I may hate to say it, but you're alright, farm boy."
+
+Luke felt his face warm up with thoughts of whatever circumstances and conversations led to Fett learning that particular fact about his past. "Cobb told you."
+
+"Of course he told me," and Fett was smiling at him now, an honest, warm smile, like the one he had worn when welcoming Din, Cobb and Grogu into his home (before he spotted Luke, of course).
+
+Pushing aside his musings of why Cobb was discussing him and his life with Fett, Luke turned away to stare at the imposing palace below. "That doesn't mean you own me, Daimyo," he grumbled, but there wasn't any real anger in his voice. Butting heads with Fett just made everything feel normal, instead of... whatever was going on. 
+
+"Funny," Fett chuckled, "I used to say something similar to the Jedi and their Old Republic kin. Most of them still acted like I was escaped property, though." Luke wouldn't have called it "funny", and he had a mark on him lower back that agreed with him, but everyone dealt with their experiences differently. 
+
+Something was shifting in the emotions that Fett was projecting, like he was circling a particular point but couldn't quite land yet. An uncomfortable silence fell as Fett continued to deliberate, until he finally chose his next words. "He's taken quite a liking to you. Cobb, that is."
+
+Luke felt a blush climb up from his chest but he didn't react in any other way that Fett might notice.
+
+The bounty hunter continued, "Well, the whole Djarin clan likes you, but for Din and the womp rat that was already a given. Grogu adores you, and he told Din all about it in whatever way the communicate, either on their own or through that new teacher of his. Cobb, on the other hand... these past rotations were your test, and you passed with flying colors, if the way he talks about you is anything to go by."
+
+How _did_ he talk about him? _Like a faithful husband talking about a friend— no, an acquaintance— and the past mentor of his stepchild_, his brain answered. _How else?_ "That's, uh," he began, tongue-tied like a fool. "That's good to hear."
+
+There was venomous mischief in Fett's voice when he added, "And you've taken quite a liking to Cobb as well."
+
+Finally. The true purpose of this conversation. A man pouncing upon the little homewrecker trying to slither his way between his best friend and his best friend's husband. Or at least that's how Fett saw it. Luke may occasionally get angry at his thoughts when they betrayed him, but he still had honor and a fuckload of firm principles. "Listen, you can think what you want of me, Fett, but know that I would _never_ even consider coming between two people—"
+
+And Fett laughed. Incomprehensibly, he laughed. "Stop squirming, farm boy!" Luke didn't stop squirming because he hadn't been squirming in the first place, but he did close his mouth to wait for a much needed explanation. Fett continued, "No wonder you hadn't made a move, you had no idea. I guess it is up to me to clue you in."
+
+"Stop treating me like the innocent, young farmhands you trick into your bed," Luke bit back. He'd grown up around here. He'd heard the rumors. He'd bore witness to friends of friends of friends coming back after a night of their parent's worrying themselves sick, all giggly and proud because a Daimyo had called upon them _specifically_ and would most definitely call them back at any moment for more permanent companionship, maybe even for their hand. It took either days, weeks or months depending on the person for them to come back to their senses and stop waiting.
+
+That strange easy-going expression was gone from Fett's face, which made Luke very happy. "You know I'm not like that."
+
+"Do I?"
+
+"Would someone like Din think me worth their time if I was?"
+
+Fuck. That was a good point. "He wouldn't give you the time of day," Luke admitted. 
+
+Fett was starting to smile again, and Luke was starting to think that may not be such a strange occurrence when he wasn't in court or helmeted. "Exactly. Din is... Din is a very curious _Mando'ad_. He is..." As Fett's sentence drifted off, Luke watched as Fett turned his face towards the rising suns with an expression of increasing fondness, a very strong and unfiltered fondness the clogged the Force signature surrounding him. Oh.
+
+Before Luke could finish connecting the dots lighting up in his head, Fett continued talking. "You and Din keep playing co-parents and then immediately switch to playacting the most professional and distant relationship you can muster. Cobb keeps peacocking around you and you bat your eyelashes, then panic and flee. And I..." Fett looked at Luke again like he was trying to find his next words in his eyes, and considering the turn their conversation had taken, this time Luke _was_ starting to squirm. "Well, maybe I will fit the stereotype this one time and bring a farm boy to our bed." Luke didn't have a chance to react when two of Fett's fingers swept a lock of golden hair away from his forehead. "Our bed. That the three of us share. In case you still weren't getting what I'm explaining."
+
+Luke swallowed, willing himself to say something, anything. He wasn't a farm boy. He was a skilled warrior, a powerful Jedi. He was even trained in public speaking thanks to Leia. There had to be something he could do in response to that apart from blushing, stammering, and touching the spot on his forehead where he could still feel the brush of Boba's fingers. His mind was spinning so fast that Boba could've gotten up and left hours ago and he wouldn't have noticed.
+
+"Take your time, kid. You don't need to answer right now." Oh, so he hadn't left and only seconds, not hours, had passed. But he was standing up now. And he was leaving. And he was gone.
+
+"What was _that_ all about?"
+
+If Luke squeaked slightly when the voice behind him startled him, it was only because his mind had finally reached its breaking point for the day. "You're still here?!" he demanded as he turned around.
+
+Obi-Wan crossed his arms over his chest and raised an eyebrow. "Well, it's not like we got to finish _our_ conversation, Luke, and I never thought it was going to get so..."
+
+"Personal?! Private?!"
+
+His late master had the gall to roll his eyes. "So dramatic."
+
+"It _was_ private, and I—" Luke made an aborted gesture with his hand. "I don't know. I don't know what I want. I mean..." He threw a sideways glance at the now empty path where Fett had walked away. "He is handsome..."
+
+"I can't deny that without being very hypocritical." When Luke stared at him with horror, Obi-Wan dismissed it with a wave of his hand. "Nothing, never mind, you've got a lot of thinking to do." And with that he vanished, leaving Luke alone with his thoughts, which was a terribly cruel thing for a master to do.
