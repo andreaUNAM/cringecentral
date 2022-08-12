@@ -324,7 +324,7 @@ Finally. The true purpose of this conversation. A man pouncing upon the little h
 
 And Fett laughed. Incomprehensibly, he laughed. "Stop squirming, farm boy!" Luke didn't stop squirming because he hadn't been squirming in the first place, but he did close his mouth to wait for a much needed explanation. Fett continued, "No wonder you hadn't made a move, you had no idea. I guess it is up to me to clue you in."
 
-"Stop treating me like the innocent, young farmhands you trick into your bed," Luke bit back. He'd grown up around here. He'd heard the rumors. He'd bore witness to friends of friends of friends coming back after a night of their parent's worrying themselves sick, all giggly and proud because a Daimyo had called upon them _specifically_ and would most definitely call them back at any moment for more permanent companionship, maybe even for their hand. It took either days, weeks or months depending on the person for them to come back to their senses and stop waiting.
+"Stop treating me like the innocent, young farmhands you trick into your bed," Luke bit back. He'd grown up around here. He'd heard the rumors. He'd bore witness to friends of friends of friends coming back after a night of their parents worrying themselves sick, all giggly and proud because a Daimyo had called upon them _specifically_ and would most definitely call them back at any moment for more permanent companionship, maybe even for their hand. It took either days, weeks or months depending on the person for them to come back to their senses and stop waiting.
 
 That strange easy-going expression was gone from Fett's face, which made Luke very happy. "You know I'm not like that."
 
@@ -334,7 +334,7 @@ That strange easy-going expression was gone from Fett's face, which made Luke ve
 
 Fuck. That was a good point. "He wouldn't give you the time of day," Luke admitted. 
 
-Fett was starting to smile again, and Luke was starting to think that may not be such a strange occurrence when he wasn't in court or helmeted. "Exactly. Din is... Din is a very curious _Mando'ad_. He is..." As Fett's sentence drifted off, Luke watched as Fett turned his face towards the rising suns with an expression of increasing fondness, a very strong and unfiltered fondness the clogged the Force signature surrounding him. Oh.
+Fett was starting to smile again, and Luke was starting to think that may not be such a strange occurrence when he wasn't in court or helmeted. "Exactly. Din is... Din is a very curious _Mando'ad_. He is..." As Fett's sentence drifted off, Luke watched as Fett turned his face towards the rising suns with an expression of increasing fondness, a very strong and unfiltered fondness that clogged the Force signature surrounding him. Oh.
 
 Before Luke could finish connecting the dots lighting up in his head, Fett continued talking. "You and Din keep playing co-parents and then immediately switch to playacting the most professional and distant relationship you can muster. Cobb keeps peacocking around you and you bat your eyelashes, then panic and flee. And I..." Fett looked at Luke again like he was trying to find his next words in his eyes, and considering the turn their conversation had taken, this time Luke _was_ starting to squirm. "Well, maybe I will fit the stereotype this one time and bring a farm boy to our bed." Luke didn't have a chance to react when two of Fett's fingers swept a lock of golden hair away from his forehead. "Our bed. That the three of us share. In case you still weren't getting what I'm explaining."
 
@@ -352,6 +352,27 @@ Obi-Wan crossed his arms over his chest and raised an eyebrow. "Well, it's not l
 
 His late master had the gall to roll his eyes. "So dramatic."
 
-"It _was_ private, and I—" Luke made an aborted gesture with his hand. "I don't know. I don't know what I want. I mean..." He threw a sideways glance at the now empty path where Fett had walked away. "He is handsome..."
+"It _was_ private, and I—" Luke made an aborted gesture with his hand. "I don't know. I don't know what I want. I mean..." He threw a sideways glance at the now empty path where Fett had walked away. "He _is_ handsome..."
 
 "I can't deny that without being very hypocritical." When Luke stared at him with horror, Obi-Wan dismissed it with a wave of his hand. "Nothing, never mind, you've got a lot of thinking to do." And with that he vanished, leaving Luke alone with his thoughts, which was a terribly cruel thing for a master to do.
+
+## Chapter 8
+It would've been fine, anyway. Boba was in full armor; the shot would've maybe left a bruise or maybe a scrape if it managed to hit the spot between the breastplate and the pauldron in the worst case scenario. That one shot wouldn't have done any real damage, and there wouldn't be a second shot. Every guard in the throne room would've been on that sniveling _di'kut_ and his blaster in a matter of seconds, and even that would've been an overkill once Fennec put a bolt between his eyes.
+
+The meeting had started out boring, then turned to plain annoying when the Zabrak trader had started grovelling. Some folks just can't deal with not getting what they want, and this man was one of them: a mess of pleas and attempted bargains that was grating on every single one of Boba's nerves. When Boba had had enough and gestured to have him removed from his sight, the idiot made the stupidest decision of his life.
+
+He was quick to draw, sure, and his aim was decent enough that the shot was indeed heading in the right direction, but Boba didn't want to give him too much credit. After all, he wasn't that far away and he wasn't exactly a small target. Also... what the fuck was the trader's plan after that? Did he think that dying after shooting the most pathetic shot would make him some sort of martyr? If that was it, he wasn't getting it, because his death didn't come and his shot didn't land.
+
+For the tiniest of milliseconds, Boba thought that adrenaline made time appear to slow down. Then he realized that the trader's hand was shaking at normal speed. The guards were moving at normal speed, too. They may have not jumped at the trader out of confusion, but they were circling him in case anything else happened. 
+
+So it was only the blaster bolt that was frozen in time, floating halfway between the trader and Boba.
+
+He appeared like a shadow out of the corner of Boba's field of vision. He was walking towards the center of the throne room leisurely. His right hand was cradling the cup of caf he was sipping. His left hand was raised in a tight fist. The twinkle in his blue eyes combined with his half smile was almost playful, but it still made a cold shiver run down Boba's spine. Once he was standing next to the Zabrak, he stopped. And then the bolt started moving. In reverse.
+
+In his panic, the trader had dropped his blaster. It was a good thing he was already on his knees for his grovelling, because with the way he was trembling it was unlikely he would've been able to hold himself up. As the bolt he had fired started making its way back towards his body, all he did was watch with a wobbling lip. It was moving so slowly it would've been an agonizing death, the unrelenting plasma inching into his forehead, which had ended up right in its path when the Zabrak had crumbled slightly after shooting. Lucky for him, it stopped once again right before its target, the only damage being one of his horns blackening slightly in the proximity of the bolt. 
+
+Luke squatted down next to him, fist still raised. With hot breath that probably smelt of caf and confidence caressing the trader's cheek, he whispered a single word that echoed around the silent throne room: "Leave." The Zabrak immediately scrambled backwards and then to his feet, and the guards, still in shock, did not stop him as he bolted out the door. Eh. He'd get himself killed soon enough.
+
+Taking another relaxed sip from his cup, Luke stood up and turned towards Boba. "Can we talk? In private, preferably?"
+
+Boba refrained from mentioning he didn't care if they did it privately or not, but what he had in mind didn't involve a lot of talking. Fennec would be in a pissy mood all week if he did, and he wasn't ready for gossip to spread and all of Tatooine to think things of him and the Jedi. Instead, he nodded towards the backrooms, stood up, and left, knowing that Luke would be right behind him. As he left, he noticed for the first time that Din and Cobb were standing by the door Luke had entered through, and had probably arrived with the Jedi. When he walked past them, Cobb touched his shoulder and muttered, "Is it just me, or did this just make anyone else's top 10 hottest things they've ever seen?" Boba replied with a chuckle, and Din with a soft huff. "Three out of three, then. This is going to work out peachy."
