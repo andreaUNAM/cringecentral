@@ -1,1 +1,18 @@
-ECHO est  activado.
+- Aw everything is sweet they reunited they are meeting like once a MONTH? WOW? This is great
+- WHAT DO YOU MEAN YOU ARE AT WAR. WITH _LUCIFER_.
+  - it's none of your concern
+  - IT'S ALL OF MY CONCERN
+  - well sucks to be you you can't do anything about it
+  - OH YEAH? WATCH THIS //falls asleep//
+- everything you have everything you are you've got to give on the battlefield when everything is chaos and you have nothing but the way you feel your strategy and a sword you just think about the life you'll have together after the war [...] when you live for someone you're prepared to die deep down i know that im just a human but i know that i can draw my sword and fight with my short existence i can make a difference i can be there for him i can be his knight
+- my lord there is a human dreamer kicking demon ass. Like... he's helping. But.... you know...... what the fuck..........
+- Dream honey you make it so so so easy! I always go for the heart :)
+- Option a, your human lives, luci leaves you alone (yes you do i own you bitch) and you keep ruling the dreaming buuuuuuuuuuuut you serve me and despair now :)))) or option b, your human dies and hell takes over the dreaming
+  - how about option c where i step down, my humiliation makes you go home happy and free Hob, and Loosh kicks hells ass.
+    - stupid little man makes a stupid little gamble
+    - "My pride has hurt you once before. I will not repeat that mistake."
+- sad little wet cat takes his human home, more at 10
+  - Of course he can still feel everything that happens in the dreaming
+    - Eg. Loosh finally cursing her ex-boss's stupid ass
+  - Hob calls in "family emergency" @ school to make sure sad little wet cat is ok (he's not)
+- [ Maybe the Death snippet goes here before she comes in to help ]
