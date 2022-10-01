@@ -20,26 +20,74 @@ And that was it for Robert Gadling. A meteorite could fall right outside the New
 
 "Do you, uh..." Hob cleared his throat. "Do you want anything to drink?"
 
-His Stranger still had a smile on his lips, somehow, impossibly. "Just wine, thank you. Red." Now this dance he knew. He'd have a wineglass in front of him, almost as if he wanted to complete the human ritual of "being in a pub", but he'd never touch it. Hob could deal with such a familiar thing. He flagged down the waitress (Wendy, sociology student, 3<sup>rd</sup> year) and placed the order for his friend (_his friend_!). Why he made sure to order a good one when it would go untouched, he didn't know.
+His Stranger still had a smile on his lips, somehow, impossibly. "**Just wine, thank you. Red.**" Now this dance he knew. He'd have a wineglass in front of him, almost as if he wanted to complete the human ritual of "being in a pub", but he'd never touch it. Hob could deal with such a familiar thing. He flagged down the waitress (Wendy, sociology student, 3<sup>rd</sup> year) and placed the order for his friend (_his friend_!). Why he made sure to order a good one when it would go untouched, he didn't know.
 
 Then there was silence, and even with the beast inside of Hob, it felt comfortable. He knew he was going to be the one to break it. He'd start prattling about the past century (plus some years, 33, who was counting), and his friend would remain silent, listening to whatever bullshit Hob had to say. That was what he knew, what was familiar, but today was apparently opposite day, or "Fuck with Hob's perception of reality" day, because his friend spoke first.
 
-"Dream." A pause, long enough for Hob to wonder what the fuck was going on. "Or Morpheus. Oneiros. Kai'ckul. Sandman. Take your pick."
+"**Dream.**" A pause, long enough for Hob to wonder what the fuck was going on. "**Or Morpheus. Oneiros. Kai'ckul. Sandman. Take your pick.**"
 
 "My... my pick?" There was something deep, deep, deep, deep, _deep_ inside of Hob whispering that he knew exactly what was happening, but he chose to ignore it because he didn't believe it. Whatever was happening was not what Hob thought (_hoped_) was happening. "O-Of what, exactly?"
 
-The smile was a smirk now; the bastard was doing it on purpose. "My name," he said simply, like he didn't know he was dumping a bucket of cold water on Hob's head. "I could offer more."
+The smile was a smirk now; the bastard was doing it on purpose. "**My name,**" he said simply, like he didn't know he was dumping a bucket of cold water on Hob's head. "**I could offer more.**"
 
 Oh. So what was happening was what Hob had thought was happening. Okay. _This_ was happening. He was getting a name. Name<em>s</em>, plural. And he could take his pick, if he wanted to. He didn't want to. That wasn't his choice to make. He took a swig of beer for courage. "Which one do you want me to use?"
 
-There was a millisecond of surprise in the other's expression. He quickly schooled it, though, and replied, "Dream."
+There was a millisecond of surprise in the other's expression. He quickly schooled it, though, and replied, "**Dream.**"
 
 "Dream."
 
-"Dream of the Endless."
+"**Dream of the Endless.**"
 
 "Dream _of the Endless_? Tad dramatic, don't you think?"
 
-"I am endless."
+"**I _am_ endless.**"
 
 And what the _fuck_ do you answer to that. If you're Hob Gadling, you down the rest of your beer and mutter, "Aren't we all, brother." That got him a laugh. And it was wonderful.
+
+"**Such insolence, thinking that just by being immortal you can call yourself one of us,**" Dream said, and his tone was playful. It was clear that he was joking, and yet... "**_one such as I_**"... The wording wasn't even that similar. Hob would've brushed it off as his nerves getting the better of him, if it wasn't for the way Dream immediately pressed his lips into a tight line and looked away. So. He'd heard it, too.
+
+Wendy, bless her heart, chose that moment to set down Dream's drink. It should've been a tiny break in the tension, gone before Hob could take advantage of it to change the topic. That's what it should've been. By now, it was settled that today was not the day for "should've"s or "known"s or "familiar"s.
+
+Dream took a sip.
+
+He took the wineglass by the stem with fingers that looked even more fragile than the stem itself, swirled its contents around, sniffed it, and took a small sip.
+
+What. The _ever-loving_ fuck was going on.
+
+Dream was looking down at the crimson wine, watching it lap at the sides of the glass. When he spoke, Hob was sure he was speaking to himself, not even realizing he was speaking out loud. "**It's always the little things you miss.**"
+
+And here comes Hob Gadling, Britain's undefeated champion at the art of putting his fucking foot in his mouth. "Am I a little thing?" The cheeky comment slipped out unchecked. Fuck. Here's to another 133 years of regret.
+
+Dream's hand froze so abruptly that the wine sloshed and threatened to spill out of the glass. When he lifted his gaze to meet Hob's, there was steely determination in them. Not anger, not wounded pride, but it still made Hob's stomach knot with anxiety. His voice sounded even deeper when he said, "**I wouldn't call you that, my friend, but I did miss you. Missed our meeting.**"
+
+Hob felt his only beer of the night surge back up from his stomach up his throat, around his brain, behind his eyes, and all the way down to his feet. He was on cloud nine. He was heartbroken. He had forgiven Dream the moment he walked into the New Inn. He was angry. He was confused. The word "miss" all of a sudden had too many meanings. _Of course you missed our meeting, you stupid bastard, you_ weren't there. _But did you also ache at the lack of it, from wherever you were, nursing your wounded pride and letting me stew in my pain for an extra 33 years?_ Hob closed his eyes (a feeble attempt at keeping his tears in check) before managing to push out two words. "Then why...?"
+
+"**I know I owe you an explanation.**"
+
+And then there was silence. Not a pause, not a buildup towards an explanation. Silence. Of course. Hob rubbed his eyes and let out a pitiful excuse for a laugh. So much for a straightforward answer. Like herding fucking cats...
+
+"**I was captured and imprisoned.**"
+
+Hob's eyes flew open. It was like a switch was flipped inside him. All of his pain, his self-pity, his anger at Dream, all of it flocked together into a single razor-sharp blade of anger pointed at a new nameless enemy. "Who?" he growled.
+
+"**Hob...**"
+
+"_Who?"_
+
+"**They've all been dealt with.**"
+
+"Good." Hob would never call himself a good man, and not wishing ill upon others was a rule of good men. He wished that whatever way they had been dealt with had been tenfold whatever suffering they'd put Dream through.
+
+Dream's gaze was stern again when he reiterated his previous statement. "**It really did pain me to miss our last meeting, specially considering the way we parted in our meeting before that.**"
+
+Another sad little laugh. "Yeah, I think that 30-plus years of imprisonment absolves you from that, dear heart." He'd never called him that before. Why was he calling him that? Why was he so keen in testing the limits today until he screwed everything up again? What would Dream-
+
+"**A century. I was there for a century.**"
+
+Hob thought he was going to fall off his chair with the wave of nausea that hit him. "Bloody _hell_, Dream." He steadied himself. "Are you okay?" Dream's eyes were suddenly elsewhere. Of course he wasn't okay. What a stupid question. To make up for it, Hob stepped up his game with a stupid action: he reached across the table and squeezed Dream's hand. "I'm here for whatever you need," he said softly.
+
+The universe stopped dead in its tracks. Dream looked down at where Hob's hand was still on his own. Hob had the very foreign feeling that he was about to die.
+
+Dream placed his other hand on top of Hob's. "**Thank you, my friend.**"
+
+Hob had the very foreign feeling that he was being born again into a whole new world.
