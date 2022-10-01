@@ -16,3 +16,4 @@
     - Eg. Loosh finally cursing her ex-boss's stupid ass
   - Hob calls in "family emergency" @ school to make sure sad little wet cat is ok (he's not)
 - [ Maybe the Death snippet goes here before she comes in to help ]
+- Like i know this is technically not finished give me a fucking break ok
