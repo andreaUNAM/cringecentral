@@ -91,3 +91,47 @@ The universe stopped dead in its tracks. Dream looked down at where Hob's hand w
 Dream placed his other hand on top of Hob's. "**Thank you, my friend.**"
 
 Hob had the very foreign feeling that he was being born again into a whole new world.
+
+## Chapter 2
+
+The moment ended a handful of seconds after it started, but it was enough for Hob to commit to memory how every inch of his skin that was in contact with Dream's felt. It hadn't been a brusque separation, either. Dream simply eased back into his chair, taking his hands with him. Pity. Hob didn't move his hand for a while, just in case.
+
+"—and yeah, it's slowly becoming a state of constant surveillance, your vacuum cleaner contains a detailed floor plan of your home, it's all gonna come back to bite us in the arse sooner rather than later, but hey! We said the same thing about electrical lights, didn't we? Well, yeah, it might be worse this time around, but look at this! Once upon a time, you felt any sort of physical ailment and they'd stick a leech on you and call it a day. Now, a fucken shiny square is telling me to go for a walk before the day ends to reach my daily step goal!" A sweeping gesture at his watch. "I swear, this thing is going to have an artificial existencial crisis when the years pass and my heartbeat never stops. That is, if the damned things were built to last. I've had breeches that lasted longer than one of my new phones."
+
+He had been rambling about the past century for quite some time now. It was dark outside (yeah, his watch was going to be angry at him about the step goal, but Dream took priority. Over everything.). He had three empty beer glasses in front of him, and in front of Dream was an empty wineglass. Hob hadn't even suggested he get a second; he didn't want to push the amount of miracles that could happen in one day.
+
+He placed both hands on the table, leaned back, and caught his breath. He wasn't sure when he had adopted those series of gestures to end a rant, but he knew that his students recognized them as the signal to hit "Stop" on their phone's stopwatch. The little bastards timed him. He knew there was a spreadsheet somewhere with a detailed account of his personal records. Cheeky fuckers. He loved them so much. "So..." He had no idea what he wanted to say next. If this were one of their previous meetings, that would be it, after his recount of the century. Well. No. There was one more thing missing, if they were going to dance their usual dance. "Aren't you going to ask me?"
+
+Dream furrowed his brow minutely as he processed the question, but when he understood, his little smirk was very similar to the one from right after the Constantine incident. Oh, how Hob loved that smirk. "**Hadn't we agreed that it was pointless for me to ask by now?**"
+
+"Come on! For the sake of tradition, my friend!"
+
+Dream's sigh carried frustration and affection in equal quantities. And a whole lot of theatrics. "**Fine.**" He eyed Hob like one eyes an annoying little pet who demands treats. "**Robert Gadling. Do you still wish to live?**"
+
+Hob knew the question was coming. He had asked for it, for fuck's sake. He knew his answer; it had not changed in six hundred years. A three-letter word would suffice. But _no_. His reaction was a pair of fingerguns and "You know it, baby."
+
+Why? Why the _fuck_ did he do that? Why the fuck did he _say_ that?
+
+Dream was staring at him with a blank expression. Time to holster those guns, partner. "That..." Hob cleared his throat. "That means yes."
+
+And Dream laughed. A huff of sound escaped his lips, and he placed a loose fist over it to hide it, but his eyes shone with mirth. "**You are insufferable,**" he said, and Hob felt himself drown in the affection those words carried.
+
+Hob was tugging at his earlobe again, damned little tick. "Eh, you only have to deal with me once a century."
+
+Dream glanced down at his empty wineglass, traced its edge with a pale finger once, twice, thrice, and raised his eyes to Hob again. "**Friends meet more often than centennially, yes?**"
+
+Hob's throat felt dry. A fourth beer was sounding quite enticing all of a sudden. Tread very carefully, Gadling. "Friends do, yes," he stammered.
+
+Dream nodded slowly. "**Then I shall do my best to come visit you soon, dear friend.**" He stood up, and then this man, god, _being_ awarded Hob one last miracle: "**Shall I walk you home?**" Dream's lips twisted into a playful little smile. "**To appease your _square_?**"
+
+Well, that sounded just lovely, except— "I live upstairs, mate," Hob replied with a sheepish grin, and Dream looked positively shocked, his mouth a perfect "o". "Yeah, it was the easiest solution, I already owned the land, couldn't be arsed to deal with even more real estate."
+
+"**You own... this land?**"
+
+Hob was able to divert his hand before it tugged at his earlobe yet again, running it through his hair instead. "Yup. Spotted it, bought it, had the New Inn built on top of it," he said. _For you,_ he didn't say.
+
+_For me,_ Dream's shocked faced seemed to say. "**I-**"
+
+Hob couldn't bear to hear whatever was going to come after in that sentence. "You can walk me to the stairs," he cut in, pointing to the door next to the bar.
+
+This day had been so bizarre that when Dream's shocked expression morphed into a smile, normalcy was restored into the world. "**Lead the way**," he said with a tilt of the head that was almost a bow, if one such as Dream of the Endless would ever bow to one such as Hob Gadling.
