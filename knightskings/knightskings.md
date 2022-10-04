@@ -135,3 +135,73 @@ _For me,_ Dream's shocked faced seemed to say. "**I-**"
 Hob couldn't bear to hear whatever was going to come after in that sentence. "You can walk me to the stairs," he cut in, pointing to the door next to the bar.
 
 This day had been so bizarre that when Dream's shocked expression morphed into a smile, normalcy was restored into the world. "**Lead the way**," he said with a tilt of the head that was almost a bow, if one such as Dream of the Endless would ever bow to one such as Hob Gadling.
+
+## Chapter 3
+
+When Dream had said he'd try to visit him sooner than 2089, Hob expected to see him in 50 years, turning their meetings into a semicentennial occurrence and patting himself in the back for doing such a good job at playing the part of normal friend. Instead, Dream showed up at his office a little more than a month later.
+
+Hob, as seemed to be his custom, started talking before he was done thinking. "How did you know where— right, Endless, whatever, don't answer that, not that you were going to answer anyway."
+
+Dream's rigid stance and expression were solemn as ever, but there was a hint of taunting in his voice when he said, "**"Hello, Dream. Good to see you, Dream. How have you been keeping, Dream?"**"
+
+Hob pointed at him with a plastic fork that still held the cherry tomato he had been about to indulge in when he had sensed a pair of eyes (_that_ pair of eyes) watching him from the open doorway. "I don't know who taught you how to be funny, but I'd like to have a word with them. I don't think they realize the horrors they've unleashed into the world." He popped the tomato into his mouth before gesturing at the empty chair across his desk. "Close the door behind you, will you? This is technically my lunch break, but I like to keep an "all hours are office hours if you see my door open" policy for the kids, in case they need something."
+
+After doing as he was asked, Dream slid into the offered chair. Once again, his posture was so at ease that Hob felt a sparkle of pride knowing his friend felt like he could relax around him. "**That honor would go to my older sister, I am afraid,**" he retorted to Hob's banter, "**if you want to take your complaints up to her.**"
+
+Hob could've choked on the piece of lettuce he had just put in his mouth. He could've sputtered, freaked out, demanded more information, but he decided that no, he wasn't doing that today. "Right. You have a sister. Of course. Endless, too, I presume. Obviously. No doubt about it. Still no bleeding clue what any of that means, but live and let live, right?"
+
+Dream tilted his head in a way that Hob would've called adorable if he were looking to get his tongue ripped out of his skull by a god. "**Has the ever-curious Hob Gadling run out of questions?**"
+
+"The ever-patient Hob Gadling is done asking questions he won't receive an answer to, as a little bit of self-care, to adopt the sayings of the century."
+
+"**I cannot wait to see how long _that_ lasts.**"
+
+"Eat shit, mate." Dream's eyebrow climbed up a good inch, and Hob feared that he had gotten a bit too comfortable in their new comradery, but Dream didn't storm out. Look positively pissy, he did, but he stayed put, so Hob guessed he was in the clear. "Apologies. Eat shit, milord."
+
+Dream pursed his lips. "**I wonder if knowledge about who I am would make you choose your words more carefully, but I fear that that is a lost cause.**"
+
+As he put his now empty salad container back into his bag, Hob let out a dramatic sigh. "You could try, but I must warn you: I've already drawn up a pretty good picture of who you are with the names you gave me last time, and I'm still not very careful with what I say."
+
+Dream's pissy mood uncoiled just a smidge. "**You've become quite a scholar, haven't you?**"
+
+While the (almost) compliment was pleasant to receive, Hob felt it was his duty as liaison for humanity before Dream of the Endless to clarify a thing or two. "Mate," he began slowly, "I just needed to know how to google shit." He pulled his laptop closer from where he had pushed it aside to eat, opened a new browser tab and typed in "morpheus". He turned the laptop around so the screen was facing Dream. "There. From putting it all together, I figured you are some sort of god of sleep."
+
+Without paying any attention to the screen (huh, Hob would've thought that in his vanity he'd love to read about himself), Dream let out a shallow laugh, "**A _god_.**" He sounded extremely amused, as if his good friend Hob were taking the piss by calling him such a lowly name. "**You think me so fleeting, Robert?**"
+
+Well. Shit. Hob thought he had had a good guess there. Fuck him, apparently, for considering that his immortal, proud, powerful friend was something as meager as a _god_. "You said you were Endless," he answered stupidly.
+
+"**And gods are not.**" Obviously. Gods? Endless? Ha! Laughable idea. "**And immortal human men...**" He let his words hang between them, a smirk on his lips.
+
+Hob slammed his laptop shut, but any anger the action could convey was evaporated by his wide grin. "Fine, fine, I get it, we are all but shit beneath your Endless Doc Martens." Another tilt of the head. "Your boots." Damn him to Hell but he had been right, Hob couldn't help but be his usual curious self. "I yield. What, exactly, does it mean to be Endless?"
+
+Dream, damn him to Hell and back, gave himself a moment to bask in his victory, and then he rearranged his long legs so that the ankle of one was resting on the knee of the other. "**You catch me in a good mood, my friend,**" he basically purred, and the contented sound combined with the knowledge that, despite everything, his friend could still have good moods made the corners of Hob's lips twitch. "**We of the Endless, for there are seven of us, predate your kind, your gods, and your world. I am the Lord of the Dreaming, Creator of Dreams, King of Nightmares, Shaper of Forms. I contain the entirety of the human unconsciousness. Whensoever you sleep, you enter the Dreaming. The Dreaming is me, and I am the Dreaming.**"
+
+Hob was glad for his previous research because, as it was, he felt like his brain was melting into goo, even when he had already coached himself mentally to accept that his Stranger turned friend was a god. And then it turns out that "god" fell short of the mark, and that little speech...
+
+"Christ's fingernails..." Now there's a phrase he hadn't used in a while. "So, uh-" Hob paused and swallowed, trying to find his voice, his real voice, not that pitchy excuse for a sound. "So you are Dream. And, uh, your sister? The one who taught you how to be funny? Who is she, Humor?" He hoped that Dream understood that he was being earnest and not trying to insult another Endless, one he hadn't even met.
+
+No insult had ocurred, judging by the soft smile that appeared on Dream's lips. "**She'll be amused to hear you said that,**" he murmured, a mental note to himself, then added, to Hob, "**But no. She's Death. It is to her you owe your immortality.**"
+
+And Hob had lost his big boy voice once again. "Give her my thanks, then," he squeaked.
+
+"**I will, Hob Gadling,**" Dream answered with such finality that Hob sensed the end of his visit approaching. Which, by the way, begged the question—
+
+"Hey, uh, bit of a change of subject, but I didn't catch the reason for your visit, my friend," Hob prompted, knowing full well that none have been given.
+
+Just because Hob had every inch of that face memorized (and he liked to think that was a very normal thing for friends to do, thank you very much) was he able to catch the momentary awkwardness in Dream's expression. "**To visit you,**" he explained with a furrowed brow. "**To visit a friend**."
+
+Something that ran warmer than his blood usually did started thrumming through Hob's veins. "A social call, then?"
+
+"**Aye**," was the curt reply.
+
+"Much obliged." Look at them, a couple of old men just spending some time together because they could, _a social call_.
+
+Dream had stood up in that infuriatingly deadly silent manner of his. "**I should take my leave now.**"
+
+Fighting back disappointment (he had gotten the chance to see him a mere _month_ after their last meeting, stop being greedy), Hob smiled. "It was nice to see you, old friend."
+
+"**You too, Hob. I—**" It was still such a bizarre experience to see Dream act hesitant about anything. "**My Kingdom keeps me quite busy, but I'd like to say you again before our next set appointment.**"
+
+"I'd love that." Hob no longer had to force his smile.
+
+With one last nod to signal his goodbye, Dream turned towards the door and walked out. Hob heard an impossible rush of wind within the closed hallway and the telltale sound of moving sand. It was kind of sweet of him, to say goodbye and use doors and walk away, even if he did end up causing up a confusing situation for the cleaning staff to deal with later.
