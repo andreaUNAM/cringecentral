@@ -1,9 +1,12 @@
 - Aw everything is sweet they reunited they are meeting like once a MONTH? WOW? This is great
+  - This first point alone is now four chapters, 5k words..... help........
+  - I haven't decided whether they get together here or latter
 - WHAT DO YOU MEAN YOU ARE AT WAR. WITH _LUCIFER_.
   - it's none of your concern
   - IT'S ALL OF MY CONCERN
   - well sucks to be you you can't do anything about it
   - OH YEAH? WATCH THIS //falls asleep//
+  - (also Hob smokes while in distressing situations like, for example, finding out Lucifer Morningstar exist when you're just a medieval peasant)
 - everything you have everything you are you've got to give on the battlefield when everything is chaos and you have nothing but the way you feel your strategy and a sword you just think about the life you'll have together after the war [...] when you live for someone you're prepared to die deep down i know that im just a human but i know that i can draw my sword and fight with my short existence i can make a difference i can be there for him i can be his knight
 - my lord there is a human dreamer kicking demon ass. Like... he's helping. But.... you know...... what the fuck..........
 - Dream honey you make it so so so easy! I always go for the heart :)
@@ -16,4 +19,6 @@
     - Eg. Loosh finally cursing her ex-boss's stupid ass
   - Hob calls in "family emergency" @ school to make sure sad little wet cat is ok (he's not)
 - [ Maybe the Death snippet goes here before she comes in to help ]
+  - (when Death shows up, Hob has a moment of gentleman-y panic because here's the older sister. and here he is. with her brother. alone in his private chambers. hand on his thigh. _and they are not even engaged to be wed_. Scandalous.)
 - Like i know this is technically not finished give me a fucking break ok
+- Also eventually a Constantine scene. Cause that would be funny.
