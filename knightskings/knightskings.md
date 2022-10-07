@@ -250,9 +250,9 @@ And the fact that Dream felt the need to clarify _that_ was giving Hob ludicrous
 
 He had forgotten one little detail, and that is that no one denied the King of Dreams anything, not even one's hand when he reaches his forward. Closing the distance between them, he placed the hand he had offered before over Hob's, damp dishrag be damned. "**Just by existing you have provided me more assistance over the centuries than you could ever imagine. I need you to know that. I've treated you unfairly in the past because of my foolish pride, but I don't want to do that anymore, even—**" He tightened his jaw slightly, something in his eyes revealing that the battle against his pride was not over yet. "**Even if it scares me. Hob...**" His other hand joined the first. "**Hob, if you return my affection—**"
 
-"**_Return my affection_**, how could he be so damn cute when he talked all solemn with his deep voice and fancy words. "Darling, you are hurting—"
+"**_Return my affection_**", how could he be so damn cute when he talked all solemn with his deep voice and fancy words. "Darling, you are hurting—"
 
-"**And you've always know how to make me feel better.**"
+"**And you always know how to make me feel better.**"
 
 "—and I'm very glad that is the case, but," God, was he really about to say this? "can we put a pin in this?" Not being a saint of unbreakable convictions, he raised Dream's hands to his lips and brushed a kiss across the knuckles. "Save this conversation for peaceful times?"
 
@@ -263,3 +263,67 @@ Hob offered him a small smile. Grief sometimes made you feel that way, but peace
 Dream sighed with exasperation, as if Hob was being particularly thick. "**They very well can be, when one's kingdom is at war with the forces of Hell.**"
 
 ## Chapter 5
+
+Hob had read somewhere that we are never just our current age. Every year we live piles on upon the ones before it, adding our experiences in such a way that we can never just be _this_ age. We are everyone we've ever been, all at once. As someone with so many years to add up, Hob enthusiastically agreed. The good and the bad, all 667 years, all of it was Hob Gadling, with all of those moving parts surfacing and falling into obscurity across time.
+
+For example, right now, he was once again a medieval peasant, wishing he had his mother's bone rosary to cling to as a pretty massive crisis of faith crashed over him. Sure, he had abandoned all semblances of religion around, oh, 1524? but there are certain names you never forget to fear, even when you stop believing in the existence of the entity they belong to. And then your friendly neighborhood anthropomorphic personification of dreams flips that over on its head.
+
+"So... Lucifer Morningstar is not only very real... but he holds a personal grudge against you and is invading your kingdom because of it."
+
+They had moved to the couch at some point. There was a big mush of colors and sounds were Hob's memories of that process should be, but the point is that that's where they were now. Hob had his face in his hands, and through the gaps between his fingers he could see Dream sitting very stiffly a respectful distance away. The Lord of Dreams and Nightmares, telling him about Satan, all while sitting in his shitty little IKEA couch.
+
+"**_They_ hold a personal grudge against me,**" Dream corrected instead of saying, for example, "I'm fucking with you, mate, of course they're not real."
+
+Hob rubbed his face for the umpteenth time in the past half hour. "Sure. What _can't_ queer people do these days? Go us." The look Dream shot him managed to be both confused and annoyed. Feeling some life return to his legs, Hob decided to stand up and walked over to the kitchen. Reaching under the counter, he pulled out one of the few bottles of liquor he kept upstairs and two crystal tumblers. As he stared at the amber liquid, he realized that, no, this would not be enough, but he had promised himself— Wait.
+
+"You don't have lungs, do you?" Dream's expression was definitely just confused now. Yeah, he probably didn't.
+
+Hob opened one of the cabinets over his small stove, moving aside some of the spice jars so he could reach behind them and all the way back, feeling around until— Et voilà. It was a bit of a challenge to get the lighter to work with shaking fingers, and a second challenge to hold the flame steady, but soon enough he was blowing all of his problems away in a little gray cloud, head tilted back, cigarette held elegantly between index and middle finger. Like riding a bike.
+
+"**That is absolutely disgusting.**"
+
+"Shut up, I'm coping."
+
+"**The man who sang praises for the chimney, now willingly bringing smoke into his home.**"
+
+"Dream, love, I really need you to shut up for a second."
+
+"**You know those things—**"
+
+"Will kill me? Is that what you were going to say?" After another long drag, Hob leaned forwards on the counter to stare at Dream. "I started when it was in fashion. I stopped when I learned about secondhand smoking. You don't have lungs. _Please_ let me have this before I break down crying over the existence of Hell."
+
+"**I _do_ have a sense of smell,**" Dream grumbled, but otherwise dropped the matter entirely.
+
+There was a blissful silence in the flat after that. The only sounds were Hob's inhales, pulling in, in, in, deep into the lungs, filling them with the stuff, hold, hold, hold, out in a long exhale, smoke curling out his nose and mouth. Could he still do smoke rings? He gave it a try with the next exhale. Crooked, unstable O. He'd have to try again. His next exhale came with a word: "Whoooo..." A bit less crooked, a bit less unstable. "Are..." He had forgotten to properly administer his smoke, so all that was left for this second word was a sad little puff. Laughter overtook him, quickly replaced by a cough. "Y-You," he finished amidst his coughing. Once all the smoke was out of his lungs and he had taken a good, clean deep breath, the cough subsided. "Bloody magical caterpillar," he chuckled under his breath.
+
+"**I am starting to worry about your mind's stability.**"
+
+Right. Dream. Hob had had his selfish little respite, but it was time to get back to the matter at hand. "M'alright, nothing to worry about, just getting my wits all sorted out again with a bit of fun." He grabbed both tumblers from the counter, shifting around the one in his right hand so it didn't catch any ash from his cigarette. "Doing a bit from _Alice_, dove, don't worry, I know who _you_ are, at least now I do." His ramblings were probably not helping paint a picture of perfect mental stability. Eh. He'd run out of steam eventually. He placed one tumbler (left hand, certifiably ash-free) on the coffee table in front of Dream, who watched him with a wrinkled nose, either from the offer of liquor, the proximity of the cigarette, or both. A very lordly look, very... 1589? Before he ran off? Hob eased back into his end of the couch. "Sorry, I needed a minute there. Right. Back to where we were. Hell. War. Right. How can I help?"
+
+Dream's dignified disgust disappeared when he frowned. "**Help?**"
+
+"Yeah, how can I help? I'm guessing this invasion is taking place in a different part of the Dreaming from the one I visit every night 'cause I haven't noticed anything amiss. I'm going to need a couple of pointers to get to the battlefield, my liege."
+
+With a voice that had shifted down a couple of octaves in a very inhuman way, Dream enunciated coldly, "**You. Are _not_. Fighting.**"
+
+Well, then. The King had spoken. Nothing to do about it. Unless you're Hob Gadling. "Yeah, I fucking am. I have the experience, I'm in, uh, decent shape, and most importantly: I can be there for you for this. I wasn't there—" No, he still couldn't say it. "I wasn't there last time; let me be there this time. I _need_ to be there this time."
+
+Dream stood up abruptly, all white-hot fury and "**_then I shall take my leave of you and prove you wrong_**". Hob swallowed, but did not break eye contact. "**I will _not_ have you fight in a war that does not concern you. Not for me. Not for anyone.**"
+
+"First of all, that's how wars work, that's their whole point, putting some guy that barely knows what's going on in the front. Trust me, I've been that guy quite a few times." Hob finished what remained of his drink, dropped the cigarette into the tumbler, and stood up to be eye to eye with Dream. "Second of all, this one is the exception. It very much does concern me because it concerns _you_. I know there's still that conversation we haven't had, but I..." He sighed, unsure of how to word the turmoil inside of him.
+
+"**If you say you'd die for me, I'll know your words to be hollow, Hob Gadling.**"
+
+Hob smiled, not in a way that reached his eyes but in a way that had charmed lovers, law enforcers, commanding officers, and barkeeps across the centuries. "I'd kill for you. How's that, huh?" He sealed the deal with a wink.
+
+Dream was not swayed. "**This war is beyond your comprehension, even with your "experience".**"
+
+On the one hand, understatement of the millennia, Hob could barely begin to wrap his head around the idea of the Dreaming, and he couldn't picture the enemy beyond caricatures and pictures drawn in chapel walls to force him to remain pious. On the other, the Hob that fought in Burgundy would have a fit equal to one from learning about the existence of Lucifer if he learnt about tanks, let alone the atom bomb. And then he'd down his ale and run into the battlefield. He's stupid like that. "I'm an adaptable man, you know that about me."
+
+Dream held his gaze, but said nothing for a beat. He was running out of arguments, but he was also as stubborn as Hob. Unstoppable force meets immovable object, alright. Finally, with a softer tone, he said, "**There is a way you can help me.**"
+
+Hob's eyebrows shot up. "Oh?"
+
+"**Be here. Let me come back to you after the war. Let me look forward to seeing you again, and let that be what keeps my strength up, just like it has for the past six hundred years.**"
+
+Hob still had some words left to say to _that_, but it's rather hard to argue with a swirl of sand slowly settling on your living room floor.
