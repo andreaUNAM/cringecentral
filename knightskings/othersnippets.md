@@ -12,7 +12,7 @@ Dream immediately rolled off him and lifted himself up on his forearms to stare 
 
 Hob frowned. "Love, I was..." He gestured vaguely with the hand that had not remained stubbornly glued to Dream's back despite the shift in position. "I looked and smelled like the rancid turd of a seasick possum."
 
-Dream rolled his eyes, which wasn't very kingly of him. "**Thank you for that lovely image.**" The robe began slipping off one shoulder, and as a knee-jerk reaction, Hob grabbed the collar and pulled it back up. When he released it, Dream caught his hand and laced their fingers together. "**But I mean it. 1689. The year I began loving you.**"
+Dream rolled his eyes in a way that was adorably human. "**Thank you for that lovely image.**" The robe began slipping off one shoulder, and as a knee-jerk reaction, Hob grabbed the collar and pulled it back up. When he released it, Dream caught his hand and laced their fingers together. "**But I mean it. 1689. The year I began loving you.**"
 
 "But..."
 
@@ -66,7 +66,7 @@ She walked ahead, saying this and that and "Sorry about the mess" (and Hob thoug
 
 "**I believe it is customary among humans to name their children after their ancestors as a sign of respect.**" Funny guy.
 
-"Yeah, I know, I've got the same name as my "father" who gave me the money for the New Inn and as my "grandfather" who fought in World War II," Hob made the corresponding airquotes right in Dream's face to make sure his point wasn't lost. And to be a bitch, "and I also share an uncanny resemblance with both of them, but _guess fucking what_?!"
+"Yeah, I know, I've got the same name as my "father" who gave me the money for the New Inn and as my "grandfather" who fought in World War II," Hob made the corresponding air quotes right in Dream's face to make sure his point wasn't lost. And to be a bitch. "And I also share an uncanny resemblance with both of them, but _guess fucking what_?!"
 
 Dream didn't even have the decency of being annoyed at his gesticulations. "**If she were immortal and the same woman we faced in 1789, I'd know.**"
 

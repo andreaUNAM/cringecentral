@@ -1,4 +1,4 @@
-# [Title TBD]
+# Let me be your knight
 
 ## Chapter 1
 
@@ -44,7 +44,7 @@ There was a millisecond of surprise in the other's expression. He quickly school
 
 And what the _fuck_ do you answer to that. If you're Hob Gadling, you down the rest of your beer and mutter, "Aren't we all, brother." That got him a laugh. And it was wonderful.
 
-"**Such insolence, thinking that just by being immortal you can call yourself one of us,**" Dream said, and his tone was playful. It was clear that he was joking, and yet... "**_one such as I_**"... The wording wasn't even that similar. Hob would've brushed it off as his nerves getting the better of him, if it wasn't for the way Dream immediately pressed his lips into a tight line and looked away. So. He'd heard it, too.
+"**Such insolence, thinking that just by being immortal you can call yourself one of us,**" Dream said, and his tone was playful. It was clear that he was joking, and yet... **_one such as I_**... The wording wasn't even that similar. Hob would've brushed it off as his nerves getting the better of him, if it wasn't for the way Dream immediately pressed his lips into a tight line and looked away. So. He'd heard it, too.
 
 Wendy, bless her heart, chose that moment to set down Dream's drink. It should've been a tiny break in the tension, gone before Hob could take advantage of it to change the topic. That's what it should've been. By now, it was settled that today was not the day for "should've"s or "known"s or "familiar"s.
 
@@ -250,7 +250,7 @@ And the fact that Dream felt the need to clarify _that_ was giving Hob ludicrous
 
 He had forgotten one little detail, and that is that no one denied the King of Dreams anything, not even one's hand when he reaches his forward. Closing the distance between them, he placed the hand he had offered before over Hob's, damp dishrag be damned. "**Just by existing you have provided me more assistance over the centuries than you could ever imagine. I need you to know that. I've treated you unfairly in the past because of my foolish pride, but I don't want to do that anymore, even—**" He tightened his jaw slightly, something in his eyes revealing that the battle against his pride was not over yet. "**Even if it scares me. Hob...**" His other hand joined the first. "**Hob, if you return my affection—**"
 
-"**_Return my affection_**", how could he be so damn cute when he talked all solemn with his deep voice and fancy words. "Darling, you are hurting—"
+**_Return my affection_**, how could he be so damn cute when he talked all solemn with his deep voice and fancy words. "Darling, you are hurting—"
 
 "**And you always know how to make me feel better.**"
 
@@ -308,7 +308,7 @@ With a voice that had shifted down a couple of octaves in a very inhuman way, Dr
 
 Well, then. The King had spoken. Nothing to do about it. Unless you're Hob Gadling. "Yeah, I fucking am. I have the experience, I'm in, uh, decent shape, and most importantly: I can be there for you for this. I wasn't there—" No, he still couldn't say it. "I wasn't there last time; let me be there this time. I _need_ to be there this time."
 
-Dream stood up abruptly, all white-hot fury and "**_then I shall take my leave of you and prove you wrong_**". Hob swallowed, but did not break eye contact. "**I will _not_ have you fight in a war that does not concern you. Not for me. Not for anyone.**"
+Dream stood up abruptly, all white-hot fury and **_then I shall take my leave of you and prove you wrong_**. Hob swallowed, but did not break eye contact. "**I will _not_ have you fight in a war that does not concern you. Not for me. Not for anyone.**"
 
 "First of all, that's how wars work, that's their whole point, putting some guy that barely knows what's going on in the front. Trust me, I've been that guy quite a few times." Hob finished what remained of his drink, dropped the cigarette into the tumbler, and stood up to be eye to eye with Dream. "Second of all, this one is the exception. It very much does concern me because it concerns _you_. I know there's still that conversation we haven't had, but I..." He sighed, unsure of how to word the turmoil inside of him.
 
@@ -326,4 +326,92 @@ Hob's eyebrows shot up. "Oh?"
 
 "**Be here. Let me come back to you after the war. Let me look forward to seeing you again, and let that be what keeps my strength up, just like it has for the past six hundred years.**"
 
-Hob still had some words left to say to _that_, but it's rather hard to argue with a swirl of sand slowly settling on your living room floor.
+Hob still had some words left to say to _that_, but it's rather hard to argue with a swirl of sand slowly settling on your living room floor. His second option after arguing was to make his way through the rest of the pack, but when he turned towards the counter, there was just a small pile of sand next to his lighter. Absolute bastard.
+
+## Chapter 6
+
+This was definitely a perfect evening. He was sitting under a huge oak tree that shielded him from the rays of the setting sun. The apple in his hand was crisp and juicy. He had been playing Animal Crossing for hours with no interruption. Just this morning, a sign had been posted in the town square announcing the definite end of all flea-kind from here unto eternity. A young maid walked by with a pail of wine from the nearby spring. At Hob's "How fare ye?", she giggled and blushed. Now, that could prove interesting. He could put his Nintendo down and let her lead the way to the nearest barn.
+
+Huh.
+
+Something was not quite right with that picture. No, that was ridiculous. It was the perfect evening. What could possibly be wrong? Yet something inside him insisted and tugged at his mind. Something was off. Think, Robert, think. What do Nintendos in the fourteenth century and springs that flow with wine have in common?
+
+"Shit, I'm dreaming." Both the Nintendo and the apple immediately vanished. He forced himself to calm down; he couldn't afford to startle himself awake. It had been two weeks and three days since he had last seen Dream. Ever since then, he'd go to bed every night determined to have lucid dreams (he read a lot about it online) so he could look for the bastard in his own turf. He had failed every night, until now.
+
+Hob stood up and looked around. The tranquil British countryside remained stubbornly unchanged. "Hullo, Lord of the Dreaming?" Nothing. "Come on, come _on_. I have to see him." There, in the corner of his eye, a ripple. "_Please_. I need to see him. Let me see him. Take me to your leader or whatever. Please." Everything paused. The wind rustling through leaves, the swaying blades of grass, the sounds from the town just over the hill. There was doubt in that pause, and yeah, Hob could apparently sense doubt felt by a _landscape_. One more time, really drive the message home. "Please, I want to help."
+
+And that was it, the world around him shuddered and rippled. The sky burst at its seams. Where there had only been idle clouds and the last golden rays of the day, nebulas and galaxies now pushed through unseen tears in the firmament to swallow his dream whole, whisking him away to who knows where, where he'd—
+
+"Wait!"
+
+Another pause, hesitant and confused.
+
+With his right hand standing by at the ready, Hob focused on the memory of the weight on his hip until it became a reality, and his hand wrapped around the hilt of his longsword. "Okay, I'm ready. Let's go."
+
+---
+
+When the universe regurgitated him, he was standing within the most impressive room he had ever seen or could've ever imagined. Gothic columns rose high into a vaulted ceiling that wasn't a ceiling at all, but the whirling collection of nebulas and galaxies he'd seen before. Each column carried the bust of some fantastical creature or another. At the end of the room, there were three stained-glass windows depicting... well, it was hard to describe what they were depicting, for they were _alive_, pieces of glass shifting around to form now a bizarre map, now a person with short blonde hair and bat wings, now _another_ blonde person with golden eyes. In front of them rose a twisting staircase that led to a platform that held a single black throne. Ah. A throne room.
+
+All of that was very impressive and whatnot, but Hob's attention was entirely elsewhere. There was a man standing in the middle of the room with his back turned to Hob. He seemed... _different_ here, in his realm, instead of out there in Hob's reality, but Hob would know that hairdresser's nightmare of untamed black hair anywhere. Next to him was an impeccably dressed woman with dark skin, glasses, shaved head, and pointed ears, but maybe that last part was a trick of the light. Or maybe not. He was dreaming, after all. She was staring at Hob with her eyes wide like saucers.
+
+"My Lord," she began hesitantly, and Dream made a noncommittal noise, still not turning around. "There is a, uh, a—"
+
+Anyone who worked for Dream deserved all the help they could get (and probably a raise), so Hob swooped in to her rescue. "A Sir Robert Gadlen, at your service, Your Majesty." He bowed with an exaggerated flourish that would've suited the entitled prick he had been when he wore that title (but hey, legally a knight! That's the kind of shit that really polishes a CV). Dream had somehow managed to stiffen his posture even more, so Hob chuckled nervously, "I'm kidding, it's me. Hob. Just Hob. Gadling, not Gadlen. You know. Hob. Little old me." The woman was shaking her head from side to side very slowly. Hob decided that the best moment to shut his mouth had been like two minutes ago, and the second best was right now.
+
+"**_How_**..." The word was a venomous hiss that made the stained-glass windows rattle. Dream clenched his fists and Hob had the terrifying impression that his entire form undulated like liquid shadow before regaining its solid consistency. He spun around and the light from the night sky above them hit him just right. Hob swallowed. May the Lord have mercy on his immortal soul, Dream was dressed for battle. He was wearing a black robe and a fitted black leather cuirass. Between the outfit and the angered expression, his face looked sharper, gaunter, and it was breathtakingly beautiful. Undisturbed by the lovestruck expression Hob knew himself to be wearing, Dream continued, "**How are you here, Robert Gadling?**"
+
+The woman closed her eyes and pinched her nose, but Hob merely shrugged. "I have no bloody clue, if I'm honest. I just asked nicely to see you and here I am. So to answer your question: with good manners and good looks?"
+
+It was the first time Hob heard him laugh louder than a huff, easily lost in a noisy tavern, but Dream's laugh was as loud as it was lifeless. "**Splendid. I am at war, and now I have to concern myself with the appearance of another vortex as well.**" Hob had no idea what that meant, but there was a flash of pain in Dream's eyes.
+
+"My Lord, if I may..." When the woman spoke, Dream glanced at her as if they both knew that he was going to let her talk and he was not going to like a word of it. This was clearly the way things worked around here because the woman was unfazed. "Sir, there cannot be another vortex so soon after the last, you know this. I don't think this dreamer has the ability to will himself into your throne room. He is not here by a power of his own."
+
+"**Then by whose power is he here, Lucienne?**" Hob was starting to get tired of being talked about like he was an interesting little bug that had flown in.
+
+"I think..." The woman, Lucienne, hesitated. "I think the Dreaming wanted him here." She had to know she wasn't fooling anyone with her choice of words. **_The Dreaming is me, and I am the Dreaming,_** Dream himself had told Hob so.
+
+"**The Dreaming wanted him here,**" Dream repeated. "**Well, what it wants is of no consequence, I will not put him in harm's way, and Hob, by the stars, why on Earth are you raising your hand?**"
+
+"Because I want to talk now, and I've been spending too much time in classrooms lately."
+
+Dream really tried to control the way his scowl almost twitched into a smile then, but Hob was able to catch it. "**Speak, _Professor_ Gadling.**"
+
+"First of all, you jest, but keep calling me that and see where that takes you. Second of all, I've thought a lot about what you said about waiting for you to come home from the war, and I'm sorry, but that's really not my style, I'd rather be by your side throughout it. And third of all, you owe me a pack of cigarettes."
+
+Dream mockingly raised an elegant finger for each of the items Hob had listed as he answered them. First finger: "**I might.**" Second finger: "**You won't be.**" Third finger: "**No, I don't.**"
+
+Hob crossed his arms over his chest. "You keep saying that, but the Dreaming _and_ your counselor think I should fight for you." Lucienne startled, clearly not happy with being dragged into their spat.
+
+"**She's my librarian, not my counselor,**" Dream retorted, narrowing his eyes, "**and if she does think that, then she does not realize that what matters is that you remain out of danger.**"
+
+Okay, they were just going around in circles now. "_You_ want me here, Dream!" Hob exclaimed. "Or else I wouldn't be here! She said so, you know so, and I'm still not sure how this fucking place works, but I know enough to know so, too!"
+
+"**And I already said that what I want is of no consequence!**" Dream's voice boomed in the large throne room, making Hob's teeth shake. "**You will not be put in harm's way just because I had a whim to be protected by some... _peasant-knight_.**" He gestured with a grimace at Hob's cotton tunic and longsword combo, as if the insult would distract him from what he had just admitted.
+
+"There's nothing wrong with wanting to be protected," Hob said gently.
+
+So much emotion danced in Dream's eyes at that moment that it wasn't a surprise when he turned his back on Hob once again. "**Maybe so, but it does not excuse—**"
+
+His words died in his throat when Hob wrapped his arms around his waist. God bless the Dreaming, Hob had only needed to think about taking a step forwards and all of a sudden the space between them was nothing. With his forehead resting against the back of Dream's head, Hob pressed a feather-light kiss to the nape of his neck, delighted at the resulting shiver. "Let me be your knight." He nosed at the short hairs there as Dream melted into his embrace. "Let me protect you from anything that tries to hurt you." He pressed another kiss to the spot behind Dream's ear. "Let me kill anything that lays a finger on you."
+
+Dream's already deep voice had a whole other dimension with Hob's chest pressed against his back. "**I thought you wanted to postpone this conversation.**"
+
+"Oh, that conversation is still happening later, mister. This is all pre-conversation shit. This is just what mates do," Hob snickered. "And don't change the subject."
+
+"**You distracted me.**" Dream turned his head to the side, towards Hob, with lips slightly parted, but Hob took a step back. He wasn't sure if he was doing it because he still had some sort of resolve in him or to be a little shit. If it was the former, he was surprised at his self-control. If it was the latter, he was surprised at his ability to commit to the bit.
+
+"Ah, ah. Careful. Post-conversation territory."
+
+Dream glared pure poison at him over his shoulder before straightening his cuirass, which Hob hadn't even wrinkled. "**Lucienne, can you pass me a sword?**" And it's not that Hob had been so rude as to completely forget she was there, it was more like he had unconsciously assumed she had left the moment he had started nuzzling her boss.
+
+Dream turned to face Hob as Lucienne handed him a pure black masterpiece of a weapon, the engraved hilt depicting a dragon, its tail curling around the knuckle guard, and an onyx stone decorating the pommel. Hob was sure Dream was about to dismiss him in his new favorite way (by vanishing before Hob could get another word in), but Dream was merely staring at him with a cocked head like he was a rather amusing kitten. Before Hob could bark something about Dream taking a picture so it lasted longer, Dream spoke, still very amused, "**I believe tradition dictates you kneel for this.**"
+
+Oh. "Oh!" Hob began lowering himself down to his knees, but stop midway. "Wait, I didn't bathe, well, I did shower, I mean the ritual bath, and the vigil, and I need a moment to remember the words to the oath—"
+
+"**_Hob_.**" Dream raised an eyebrow and gestured with the sword in his hand.
+
+"Fine, fine, damn, someone's in a hurry." Hob knelt and bowed his head. He noticed, amused, that even in his battle regalia, Dream wore his Doc-Martens-style boots.
+
+The sword felt ice cold through his flimsy tunic where it touched his shoulders.
+
+"**Rise, Robert Gadling, knight of the Dreaming.**"
