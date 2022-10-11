@@ -415,3 +415,71 @@ Oh. "Oh!" Hob began lowering himself down to his knees, but stop midway. "Wait, 
 The sword felt ice cold through his flimsy tunic where it touched his shoulders.
 
 "**Rise, Robert Gadling, knight of the Dreaming.**"
+
+## Chapter 7
+
+As Hob rose with the biggest smile plastered on his face, he noticed that Dream was watching him with a similar, albeit smaller, smile. It was already pretty unorthodox to get re-knighted in the Realm of Dreams, so Hob considered if he should break tradition even further and give his new King a big bear hug. He decided against it. It was unlikely he'd be able to control himself a second time, and there was a war to get to, and necking the King right after one's knighting ceremony would be quite improper.
+
+"So..." Hob wrung his hands. "What exactly am I fighting? And where? And also... _how_? Do I need some sort of special holy weapon to vanquish the hoards of Hell or...?" Dream pinched his lips into one of his prissy little scowls. "Hey, don't give me that look. I thought I'd just know all of that once I got here. Threshold of revelation, and all that. A blue streak of recognition."
+
+Again with the tilted head and furrowed brow. Did he do it on purpose to be irresistibly cute? "**Threshold of what?**"
+
+"Revelation. From _Angels_? _In America_? Have you read it?"
+
+Dream sighed with annoyance. "**Why does everyone assume I've read or watched things that came out while I was imprisoned?**"
+
+Shit. "Right, sorry," Hob apologized sheepishly. "I'll lend it to you someday, if you want."
+
+There was a gleam of pride in Dream's eyes, like there was something he was just dying to show off about. "**That won't be necessary. My library—**" He stopped, remembering something. He turned towards his librarian who counseled him but who wasn't his counselor (just like Hob had once been the man he spent pleasant evenings in a pub with but who wasn't his friend). "**Lucienne—**"
+
+"The council has assembled and is awaiting your arrival, My Lord," Lucienne answered the unspoken question with just the slightest hint of irritation that told Hob that the council had probably been waiting for a while now for their Lord to stop flirting with the new knight.
+
+Hob hadn't even noticed that Dream had started looking more like he did on their Earthly meetings until his duties came rushing back and once again there was that _something_ that Hob couldn't put his finger on that made him look different. Dream shot Hob one last secret smile before nodding solemnly. "**Then I shall not keep them waiting any longer. Shall we, sir Gadling?**"
+
+"Lead the way, my liege."
+
+---
+
+Firstly: the council was held in the library around one its tables. It all seemed very improvised for Hob for a realm where anything could be created with a thought, but he refrained from making a comment. Secondly: the council apparently consisted simply of Dream, Lucienne, a man with a carved pumpkin for a head (sure), and a beautiful woman with iridescent skin and butterfly wings (of course). There was also a raven standing on the table, but Hob wasn't sure if it was part of the council or not. He didn't want to ask, either, in case he offended His Excellency Sir Raven of the Dreaming Corvids.
+
+Hob had been planning to hang back and silently watch the proceedings. He had never been the type to participate in war rooms. It was somewhat ironic. When he had participated in wars, he had always been yet another foot soldier, cannon fodder. During the time that he had been recognized as a knight, which would've meant a horse and a seat at the table, he was only called so because he had flashed enough gold to the right people, and he had seen no wars during that time. Too busy eating beyond his fill in lamb and hosting the Queen of England. The whole period was a bittersweet memory; he wished he had known Eleanor in better days.
+
+And so he had planned to be but a humble observer, but then Dream had left a space between him and the iridescent woman, and he glanced at Hob for just a millisecond, hesitant. How could he say no to that?
+
+"Oh, wow, a new guy," the raven said. Okay. His Excellency Sir Raven of the Dreaming Corvids, alright. Hob was glad he hadn't asked. "And a _dreamer_, that's interesting."
+
+"**Matthew, this is Hob Gadling, my dear friend and now knight of this realm.**" Hob might've puffed out his chest a bit at that.
+
+"A _friend_?" Matthew squawked, but he was quickly dismissed by the pumpkin-headed man.
+
+"Yeah, yeah, we've all heard of your friend Hob, can we get on with it?"
+
+Hob was starting to get the impression that this council was made up of people (and ravens) who were not likely to grovel and tell Dream only what he wanted to hear, which was, in his opinion, a sign of good leadership from Dream and also a probable source of entertainment for himself. Dream seemed to be seriously doubting both of these things at the moment. "**Mervyn... don't you have duties to attend to elsewhere in the castle?**"
+
+The pumpkin-headed man shrugged (an odd-looking gesture that made Hob wonder if that thing was physically attached to his torso or just sort of placed there). "A war council made up only four beings seemed kinda pathetic, so I decided to drop by to see what I could do. You brought a plus one, maybe I can be Matthew's plus one."
+
+"**Pathe—**" Dream momentarily closed his eyes and gripped the arms of his chair before continuing, "**Thank you for joining us, Mervyn Pumpkinhead, but let me reiterate that Hob is not my "_plus one_": he is a knight of the Dreaming and his insight will be most appreciated.**" That was all very sweet of Dream considering that a while ago Hob had confessed that he hadn't the bloodiest clue how he was supposed to participate in this war.
+
+Hob grinned awkwardly. "Glad to be here." A pause. "What am I going to be fighting?"
+
+"Hell's forces! Demons!" Matthew exclaimed, wildly flapping his wings and ruffling his feathers. "The immortal legions of the abyss! Lucifer Morningstar! Satan! The Devil in knee-high boots!"
+
+"**That's enough, Matthew, thank you,**" Dream interrupted before the raven went into more detail about the Devil's wardrobe. "**The Lightbringer should not be our primary concern. Their entire history is plagued by failure.**" Hob wanted to argue that constantly failing or not, they were still Satan and still sounded like quite a threat, but Dream seemed to be building up to a much more important point. "**Our real concern should be the assistance they are most certainly receiving, or else they would not have been able to enter my realm so easily. An assistance that, I am certain, comes from my sibling.**" The last two words were gritted out through clenched teeth.
+
+"An Endless is helping Satan?" Hob didn't realize he had spoken out loud until every eye (and hole carved in gourd) was on him.
+
+"The ancient laws that bind even the Endless—" Lucienne began.
+
+"**They are helping the Morningstar, I am sure of it,**" Dream snapped. "**They found a way around the laws, somehow.**" There was silence around the table. Matthew shuffled on his talons. Lucienne had pressed her lips tightly together, probably to physically stop herself from arguing back.
+
+"If I may..." The woman's voice was soft, but firm. Out of the corner of his eye, Hob could see patterns swirling on her skin like an oil spill. He didn't dare to turn to look at her fully; he'd probably be mesmerized by the fluctuating colors and stare at her in a way that would be considered rather rude, specially considering... well, Hob was just going to say in his defense that all those years of puritanism and several layers of clothing had left a mark in him that he hadn't fully outgrown.
+
+"**Speak freely, Gault.**"
+
+"Even if Desire of the Endless is behind the scenes of this invasion, we should first focus on Hell's assault. The dreams and nightmares out there are not being torn apart by the question of your sibling's involvement." Gault's voice broke. "They are being torn apart by demons."
+
+Dream's eyes were suddenly rimmed with tears, and Hob shuddered to think of the toll this war was having on his creations. Without thinking (as always), Hob wrapped a hand around Dream's bicep. He was about to draw back (what would the honorable council think of such familiarity between the new knight and their King?) when Dream covered it with his own and squeezed. "**I know. You're right. Thank you, Gault. Hob.**" Hob gave an answering squeeze and lowered his hand. "**I will continue to investigate Desire's involvement but without neglecting our offensive against Hell. I hope that the addition of a very skilled warrior helps turn the tide in our favor.**" He turned to look at Hob with such adoration that Hob feared he was going to be accused of nepotism.
+
+Swallowing down the rising butterflies, Hob replied, "I'll try to live up to your expectations, milord." Could ravens smirk? Because Hob was sure Matthew was smirking at him.
+
+"**It's morning now in your part of the Waking World. Wake, for now, and tonight, I'll see you on the battlefield.**" Hob opened his mouth to argue that he was ready to go _now_, he didn't care if it was morning, let him stay asleep for as long it was necessary, let others think he was a new case of _encephalitis lethargica_, he didn't _care_, but the words vanished from his mind when Dream pushed a strand of hair behind his ear. "**This dream is over.**"
