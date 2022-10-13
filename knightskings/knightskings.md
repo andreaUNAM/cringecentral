@@ -204,7 +204,7 @@ Fighting back disappointment (he had gotten the chance to see him a mere _month_
 
 "I'd love that." Hob no longer had to force his smile.
 
-With one last nod to signal his goodbye, Dream turned towards the door and walked out. Hob heard an impossible rush of wind within the closed hallway and the telltale sound of shifting sands. It was kind of sweet of him, to say goodbye and use doors and walk away, even if he did end up causing up a confusing situation for the cleaning staff to deal with later.
+With one last nod to signal his goodbye, Dream turned towards the door and walked out. Hob heard an impossible rush of wind within the closed hallway and the telltale sound of shifting sands. It was kind of sweet of him, to say goodbye and use doors and walk away, even if he did end up causing a confusing situation for the cleaning staff to deal with later.
 
 ## Chapter 4
 
@@ -212,7 +212,7 @@ The next time Dream visited him, Hob feared for his immortal life.
 
 First of all, the bastard didn't knock. Second of all, if materializing in a flurry of sand in the middle of his living room wasn't enough to scare the bejeezus out of Hob, the look of pure rage in his eyes finished the job quite nicely. Third of all, the pacing. He stepped out of his cloud of sand and began pacing, back and forth, saying nothing. Once his heart remembered that it wasn't allowed to kill Hob and began to beat again, his brain rebooted and his thoughts raced. Had he done something to piss Dream off so spectacularly? Said something? _Dreamt_ something? Shit, what had his subconscious come up with that—
 
-"**My friend, I seek your council,**" Dream announced suddenly, halting in his pacing. Oh, wow. That was... new. Very new. And frankly, quite terrifying. Hob felt ridiculous, wearing sweatpants and an old T-shirt, holding a flowered dishrag and a chipped mug, and receiving a visit from Dream of the Endless, who "**seeked his council**".
+"**My friend, I seek your council,**" Dream announced suddenly, halting in his pacing. Oh, wow. That was... new. Very new. And frankly, quite terrifying. Hob felt ridiculous, wearing sweatpants and an old T-shirt, holding a flowered dishrag and a chipped mug, and receiving a visit from Dream of the Endless, who **_seeked his council_**.
 
 Dream was staring at him. Hob realized that seconds, maybe even minutes, had passed and he hadn't said anything yet. "Right. Uh, hi. Hello. Hi." Shaking his head, he slapped the dishrag over his shoulder and pointed at one of the stools on the other side of the counter that divided the living room from the kitchen. The action was so bartender-esque (he had tried it during the New Inn's first year) that what he said next was, "What can I getcha?" He ran a hand over his face. "Uh, no, sorry. I mean, what's troubling you, love? And yeah, sure, what can I get you? I don't have anything too strong up here, but I can always run downstairs if it'll help." Two sentences too late, he realized what had slipped out. God above, it was so fucking early, his mental faculties where probably still somewhere in Dream's realm, he could not be blamed for the shit he said.
 
@@ -236,7 +236,7 @@ Dream had not moved an inch, hands still poised where Hob had left them, like he
 
 Hob's already pained heart shattered into a thousand pieces. "Dear heart, look at me," he said, and gestured with a trembling hand to his tear-filled eyes and his chest, because maybe Dream of the Endless could see through flesh and muscle and bone and find knots of grief. "No, it would not stop. But it does help. It helps make the grief a part of you, because it's not going anywhere, but you can at least stop its weight from pulling you under every second of every day. The pain means they mattered. All of them. Eleanor, Robyn, the baby..." He let his words hang because there were many names of lovers and friends that could continue that list, but now was not the time to do that, not when his friend needed him.
 
-"**Orpheus,**" Dream whispered, and Hob realized he was adding a name of his own to the list. He still hand't moved his hands, and Hob could fool himself and interpret that as waiting for Hob to take them once more. He could do that, but there was something else he wanted to try before.
+"**Orpheus,**" Dream whispered, and Hob realized he was adding a name of his own to the list. He still hadn't moved his hands, and Hob could fool himself and interpret that as waiting for Hob to take them once more. He could do that, but there was something else he wanted to try before.
 
 When Hob brushed away his tears with the pad of his thumb, Dream let his eyes flutter closed, all beautiful, long eyelashes and flawless eyeliner. How could he always look so fragile? He wasn't, of course, but Hob felt like he could shatter under the lightest of touches, but he wouldn't, obviously, he was Endless, he could shatter _Hob_ with a _thought_, there was nothing a mere human could do that would even begin to hurt him, but if there was anything out there that could do any harm to Dream, Hob would track it down and tear it limb for limb, if it had limbs, and if it didn't, there were other things Hob could do.
 

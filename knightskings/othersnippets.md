@@ -1,6 +1,92 @@
--- A quiet moment, somewhere, somewhen --
+-- A quiet moment, somewhere, somewhen (now with a pre-moment) --
 
-Dream didn't need to breathe, but he was doing it anyways. Maybe it was for Hob's sake, maybe he just enjoyed the experience. Each puff of air that left his nose rustled the thick brown hairs next to his head where it was pillowed on Hob's chest. With one elegant finger, he traced patterns on Hob's abdomen, which twitched occasionally when Dream touched a particularly ticklish spot. Hob, for his part, ran his hand up and down Dream's spine. He could feel it even through the silk robe (black, obviously) Dream was wearing; he needed to reiterate his offer of venison pasties, get some fat on those bones.
+"**Can we have the conversation now?**"
+
+They had been sitting in silence for almost two hours. After his sister left, Dream had closed his eyes and rested his chin on steepled fingers. In order to let him think or meditate or rest or whatever he needed to do in peace, Hob had grabbed a book he had left on the coffee table (a Portuguese novel around the Platonic cave myth). He didn't get very far in his reading; he kept glancing over to Dream, checking to see if he was alright, if he needed anything. It was after one of these side glances that Dream spoke. Hob didn't need to ask what conversation he was referring to.
+
+"Duck, these are hardly peaceful times—"
+
+"**There won't ever be such times, Hob,**" Dream muttered and slammed his hands down on his lap, but Hob wasn't going to be dragged into his game.
+
+"You very well know that I believe that there will be, and sooner than we expect," he answered calmly. "And all I want is for you not to be amidst some emotional turmoil when—"
+
+"**I love you.**"
+
+Hob opened his mouth, closed it, opened it again, and finally laughed softly, "When you do that." He could cry. He really could, any moment now, he could feel it rising up his chest like a balloon, but he was still laughing, and he could do both, they wouldn't be tears of sadness, anyway. "You know..." This time, his laugh really did have a sob caught somewhere in it. He ran a hand through his chin and the stubble gathering there since he hadn't shaved this morning. "I always thought I was going to be the first to say it."
+
+Dream's smile was sharp, but there was warmth there, too. "**I win.**"
+
+"You win. I love you."
+
+"**I love you, too.**"
+
+"I think we had already gone through that."
+
+"**I know. I love you.**"
+
+"You going for once for each century, dove?"
+
+"**More like once for each second.**" Suddenly (and by suddenly he means _suddenly_, wisp-of-sand suddenly), Dream was no longer sitting next to him but towering in front of him. With a pale hand on his sternum, he pushed Hob down against the back of the couch and climbed onto his lap.
+
+"Yeah, darling, that did _not_ count as the conversation. We need to talk like grown-ups about how we feel and how this is going to work, and I am going to hate myself for saying this but, Dream, could you please stop kissing my neck for two seconds and look at me?"
+
+The reply was murmured against his pulse point. "**But I cannot kiss your lips because you won't stop talking.**" And then there was a shadow of teeth sinking in. Arrogant cunt.
+
+In this angle, Hob could put his mouth right next to Dream's ear. "Look at me." Dream did so begrudgingly, and his eyes were not blue but black, completely so, except for the twinkle of stars within them. Awestruck, Hob traced a sharp cheekbone with his thumb, and then he met Dream halfway for a searing kiss.
+
+Kissing Dream of the Endless, actually kissing him, not just brushing lips against his hand or nuzzling his neck or hugging him or holding him or squeezing his arm or his thigh, actually kissing him felt beyond what any human, mortal or not, should be allowed to experience. With everything he had dared to do before now, Hob could've fooled himself into thinking he was loving a man; a man whose body temperature ran a bit colder than average, sure, but a man. The chance to do that was no longer on the table. When Dream straddled his lap, Hob felt pinned to the spot, and yet Dream weighted nothing at all. He wasn't just light; there was no weight to him _at all_. And when he gasped and Hob used that chance to deepen the kiss, the inside of his mouth tasted like dozing off next to a cozy fireplace with a warm cup of tea in your hands. Not like the taste of the tea, or the lingering smell of the burning wood on your tongue. Like the experience itself, which should not be a taste to begin with. But it was, in Dream's mouth.
+
+Hob wanted to know what the rest of him tasted like.
+
+Dream didn't get the chance to complain about Hob breaking the kiss before Hob's mouth was latched onto his neck. Of course it didn't taste like skin; it tasted like a nap in a garden. Would it bruise? Hob was briefly reminded of the conversation he wanted to have that would include a discussion on boundaries (you don't go through six centuries worth of partners without learning that it's best to settle them first instead of running headfirst into them in the worst possible ways), but then Dream whined and dug his nails into his biceps. Okay, yeah, it could wait, right?
+
+"**Hob...**" He felt his name vibrate through Dream's throat. "**I want...**"
+
+"Yeah, love, me too. Bedroom?" _Centuries_ he had waited for this. It was _not_ happening on a shitty couch. He nudged at Dream's hips because he weighted nothing at all yet no force on Earth could've moved him if he didn't choose to be moved.
+
+Dream kissed him as he slip off his lap and stood up, forcing Hob to scramble to follow him up lest they stop touching for even a second (unforgivable sin). It was not the first time Hob blindly led someone towards his room, and yet he still managed to miss the door and ended up pressing Dream against the wall next to it. Oh, well. They could have a little pit stop here, no harm, no foul.
+
+With the hand that wasn't cradling Dream's head, Hob began to push Dream's coat off his shoulders. When it fell to the floor and revealed the short-sleeved black tee underneath (bare arms, scandalous), Dream shivered. Hob smirked against his lips. Oh, he couldn't wait to break past the stoney façade and make him squirm.
+
+The reaction had been so delicious that Hob now used both hands to catch the hem of the T-shirt and push it upwards. He had pushed up all the way up to Dream's chest before he noticed that not only had Dream stopped kissing him, but he was pressing himself back against the wall like he wanted to disappear into it, eyes scrunched up tight. It was definitely not an expression of ecstasy or anything close to it.
+
+"Dream?" No response. "Dream?" Hob repeated, more insistent. He released the shirt and it fell over Dream's torso once again. That finally got his attention.
+
+When Dream opened his eyes again, for a split second they were a thousand miles away, but then he seemed to remember where he was. "**I-I apologize. That was... It will not happen again.**" He surged forwards to kiss Hob again, but Hob dodged him.
+
+"Dream, what just happened?"
+
+He almost stormed out, Hob was sure of it. Hob would've gotten really pissed if he had, not because of his own current situation, which by now was a half-situation and was quickly becoming a no-situation, but because whatever was Dream's current deal was was worrying him the fuck out of his mind. The old Dream would've stormed out. This Dream just considered the option very heavily.
+
+"Please, talk to me."
+
+"**I...**" Dream crossed his arms over his chest, and maybe it was the skinny arms and the rarity of only one layer of clothing, but once again he looked so painfully vulnerable. He had turned his head away from Hob. "**I have not been... without clothing... since I escaped from my imprisonment.**"
+
+Hob saw red. He had never wanted to learn anything about Dream's imprisonment beyond what Dream shared freely, but pictures had formed in his mind, as minds sometimes do without permission. He had pictured some sort of twisted temple, fit for a being beyond godly divinity but a prison nonetheless. He had pictured a common prison, like many he had seen himself. He had _never_ pictured anywhere where the basic decency of clothing was not granted. Trying to be gentle despite the rage coursing through him (one of the Hobs of the past would've already put his fist through the wall, he knew better now, that would not help), he bent down to retrieve Dream's coat and wrapped it around his shoulders. "Say nothing more, sweeting. We don't have to do anything you don't want—"
+
+"**But I _want_, Hob Gadling!**" Dream roughly shoved the coat off and grabbed Hob by the wrists. "**I. Want. _You_. Deeply. Ardently.**"
+
+Hob had learned his lesson of the day about letting his dick do the thinking for him, which is the only reason why he didn't kiss Dream silly after hearing that. "You have me. And we can figure out a way for you to have me in any other way you want without risking your comfort."
+
+Dream's grip on his wrists softened, and a pensive expression appeared on his features. After a moment of consideration, there was a whisper of shifting sands and Dream was no longer wearing his coat, shirt, jeans, or boots. Instead, he was wearing a silk robe. _Just_ a silk robe. It was black (obviously) and long enough to pool around Dream's feet. The tiny stars on it were embroidered with shimmering black thread, so they seemed to appear and disappear depending on how the light hit them. Or maybe they _were_ appearing and disappearing. "**Will this do?**"
+
+Hob managed to speak despite his throat suddenly feeling completely dry. "You tell me, dove. Do you feel comfortable?"
+
+To Hob's relief, Dream seemed to actually consider the question instead of just rushing through and ignoring his feelings like before. "**Yes. Yes, I do. As ridiculous as it sounds, I think that with this I can trick my body into feeling covered without it... getting in the way.**" As he said those last words, he gazed at Hob through lowered lashes, and Hob wanted to travel back in time just to tell his 1789 self that yes, that look he is giving you means exactly what you think it does, have your way with him on the tavern floor.
+
+But alas, his 2022 self still had some talking left to do, as much as he wanted to shrug it off as a common turn of phrase. "It's not ridiculous, Dream. Whatever you need to do to feel okay, it is never ridiculous, like how I avoid bodies of water larger than a tub or how I always wash my face with warm water. If it stops the bad shit from popping up, it's not ridiculous. That's what my therapist told me." Dream's eyebrow rose with an unspoken question. "Yes, I have a therapist. Yes, I have to lie to him constantly. Yes, it still helps despite all the lying. Can we stop talking about him now?"
+
+Dream started toying with the hem of Hob's shirt and smirked. "**Can we stop talking altogether?**"
+
+"Are you okay?"
+
+"**With you around?**" Dream threw his arms around Hob's neck. "**Always.**"
+
+Dream's mouth now tasted like the sleep that welcomes you after a long day.
+
+---
+
+Dream didn't need to breathe, but he was doing it anyways. Maybe it was for Hob's sake, maybe he just enjoyed the experience. Each puff of air that left his nose rustled the thick brown hairs next to his head where it was pillowed on Hob's chest. With one elegant finger, he traced patterns on Hob's abdomen, which twitched occasionally when Dream touched a particularly ticklish spot. Hob, for his part, ran his hand up and down Dream's spine. He could feel it even through his robe; he needed to reiterate his offer of venison pasties, get some fat on those bones.
 
 "All those years," he mused out loud, "and we didn't do this sooner. I mean, I don't know about you, but I've loved you... well, for a while now."
 
@@ -31,6 +117,16 @@ Hob chased the hand that had just been removed to kiss it further, tips of finge
 "**Really? It was that easy?**"
 
 "Shut up," Hob grumbled. "And to be honest, I thought all you wanted was to have me on my knees behind the tavern, and that all that "_in a hundred years time_" shit was the poor excuse for flirting you had picked up in whatever castle you had crawled out of for the first time in your life. I watched you leave and waited a respectable amount of time to pretend we weren't leaving together, but when I got outside, poof, gone. Very disappointing." He titled his head, considering. "And then I didn't die. Less disappointing."
+
+Dream buried his hand in Hob's hair. "**Must you always be so crude?**"
+
+Leaning into the touch, Hob murmured, "You didn't mind me being crude half an hour ago."
+
+It was now Dream's turn to grumble, "**Shut up,**" adding a tug to Hob's hair, but the warning was overshadowed by the dusty blush that rose to his cheeks.
+
+"C'mere," Hob laughed, twisting his leg to pull Dream back down. Not done being a brat for the day, Dream let himself fall like a puppet whose strings had been cut and landed on Hob's chest. After placing a soft kiss on his forehead, Hob placed two fingers under his chin and gently lifted his head so they were eye to eye. "_Myne owne hertis rote_," he whispered and greedily devoured the spark of adoration that appeared in Dream's eyes.
+
+---
 
 ---
 
