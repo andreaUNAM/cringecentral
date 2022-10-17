@@ -290,7 +290,7 @@ Hob opened one of the cabinets over his small stove, moving aside some of the sp
 
 "**You know those things—**"
 
-"Will kill me? Is that what you were going to say?" After another long drag, Hob leaned forwards on the counter to stare at Dream. "I started when it was in fashion. I stopped when I learned about secondhand smoking. You don't have lungs. _Please_ let me have this before I break down crying over the existence of Hell."
+"Will kill me? Is that what you were going to say?" After another long drag, Hob leaned forwards on the counter to stare at Dream. "I started when it was in fashion. I stopped when I learnt about secondhand smoking. You don't have lungs. _Please_ let me have this before I break down crying over the existence of Hell."
 
 "**I _do_ have a sense of smell,**" Dream grumbled, but otherwise dropped the matter entirely.
 
@@ -330,7 +330,7 @@ Hob still had some words left to say to _that_, but it's rather hard to argue wi
 
 ## Chapter 6
 
-This was definitely a perfect evening. He was sitting under a huge oak tree that shielded him from the rays of the setting sun. The apple in his hand was crisp and juicy. He had been playing Animal Crossing for hours with no interruption. Just this morning, a sign had been posted in the town square announcing the definite end of all flea-kind from here unto eternity. A young maid walked by with a pail of wine from the nearby spring. At Hob's "How fare ye?", she giggled and blushed. Now, that could prove interesting. He could put his Nintendo down and let her lead the way to the nearest barn.
+This was definitely a perfect evening. He was sitting under a huge oak tree that shielded him from the rays of the setting sun. The apple in his hand was crisp and juicy. He had been playing Animal Crossing for hours with no interruption. Just this morning, a sign had been posted in the town square announcing the definite end of all flea-kind from here to eternity. A young maid walked by with a pail of wine from the nearby spring. At Hob's "How fare ye?", she giggled and blushed. Now, that could prove interesting. He could put his Nintendo down and let her lead the way to the nearest barn.
 
 Huh.
 
@@ -418,7 +418,7 @@ The sword felt ice cold through his flimsy tunic where it touched his shoulders.
 
 ## Chapter 7
 
-As Hob rose with the biggest smile plastered on his face, he noticed that Dream was watching him with a similar, albeit smaller, smile. It was already pretty unorthodox to get re-knighted in the Realm of Dreams, so Hob considered if he should break tradition even further and give his new King a big bear hug. He decided against it. It was unlikely he'd be able to control himself a second time, and there was a war to get to, and necking the King right after one's knighting ceremony would be quite improper.
+As Hob rose with the biggest smile plastered on his face, he noticed that Dream was watching him with a similar, albeit smaller, smile. It was already pretty unorthodox to get re-knighted in the Realm of Dreams, so Hob considered if he should break tradition even further and give his new King a big bear hug. He decided against it. It was unlikely he'd be able to control himself a second time, and there was a war to get to, and necking with the King right after one's knighting ceremony would be quite improper.
 
 "So..." Hob wrung his hands. "What exactly am I fighting? And where? And also... _how_? Do I need some sort of special holy weapon to vanquish the hoards of Hell or...?" Dream pinched his lips into one of his prissy little scowls. "Hey, don't give me that look. I thought I'd just know all of that once I got here. Threshold of revelation, and all that. A blue streak of recognition."
 
@@ -483,3 +483,63 @@ Dream's eyes were suddenly rimmed with tears, and Hob shuddered to think of the 
 Swallowing down the rising butterflies, Hob replied, "I'll try to live up to your expectations, milord." Could ravens smirk? Because Hob was sure Matthew was smirking at him.
 
 "**It's morning now in your part of the Waking World. Wake, for now, and tonight, I'll see you on the battlefield.**" Hob opened his mouth to argue that he was ready to go _now_, he didn't care if it was morning, let him stay asleep for as long it was necessary, let others think he was a new case of _encephalitis lethargica_, he didn't _care_, but the words vanished from his mind when Dream pushed a strand of hair behind his ear. "**This dream is over.**"
+
+## Chapter 8
+
+It was an interesting time to be Hob Gadling. By day, he was a teacher. By night, he was a knight. Like fucking Batman, if Batman had an actual day job.
+
+His reluctance to be sent back to the Waking World during the day diminished just a teensy bit when he learnt that he wasn't the only one working in shifts. The dreams and nightmares chosen to fight (nightmares of great violence and pain, dreams of protection, safety and healing) were not constantly on duty on the battlefield. On rotations, they were sent out to the rest of the Dreaming, to visit the different dreamers, to do they job they had been created to do and not the one they were forced to do by the horrors invading their realm. This had a dual purpose: one, the dreamers and their sleep had to continue their usual existence without disturbance. Two, the dreams and nightmares needed the distraction. They needed to surround themselves, even for small fractions of time, in the familiarity of their purpose. They found reinvigorating peace in their usual duties, just like Hob did in his classroom.
+
+Still, he wanted to fight more.
+
+It's not like he could do something to change his schedule despite how willing he was to launch himself into battle 24/7. The rules of the arrangement were rather clear. He'd go to sleep at night. He'd appear on the battlefield, fully equipped with his longsword and maille armor. Sometimes he'd have a horse—an imposing beast with a rich black coat and flaming eyes. He called her Night Mare, because retaining one's sense of humour is important in war. He'd fight fiercely. Whenever he was wounded in a way that would've killed any other human, he'd wake up, like waking up just before you hit the ground in a dream about falling. Most of the times, this would happen when dawn was already breaking in London, and after tossing and turning without being able to fall back asleep, he'd give up and start his day. On some occasions, he'd fallen early in battle (cunning, high-ranking demons, bastards the lot of them) and had woken up two or three hours after he had fallen asleep. When this happened, sleep would come back to him, but it was always a deep sleep of peaceful, abstract dreams where he couldn't remember who or what he was, let alone march up to the Lord of the place and demand to be put back into the action.
+
+He'd never made it unscathed through the night to find if he could remain in the Dreaming as a reward for not falling. This truly was a war beyond anything else he had ever seen.
+
+At first, he deluded himself into thinking that dream-wounds are not real wounds. It was an incredibly naïve delusion for someone who knew The Sandman in person, had lived for 600-plus years, and was fighting what he knew to be the real Devil. The good news was that at least dream-wounds healed quite fast, even faster than Hob was used to, knowing himself to be a quick healer. Nevertheless, he started noticing new scars, the arm that had been ripped out of its socket by a lion-headed demon was sluggish for four days, the day after waking up from being poisoned he'd had to move around dragging the foot whose ankle had been bitten.
+
+He wished he could fight more.
+
+His students noticed the change. They pointed out his injured behavior. They gently coaxed him back into the present when he spaced out. There was less passion in his rants. There were Middle English expressions in his lecture on the Local Government Act. There was one comment from the back rows about Fight Club. He dismissed all worries, remarks, and suggestions. He loved each and every one of those little shits, but he didn't want to be here. He wanted to be knee-deep in demon ichor.
+
+Whenever he found a rhythm in battle, it was easy to think, take the pieces he had picked up here and there and put them together. Desire of the Endless. Huh. They sounded like they should be a fun one, honestly. If _Death_ of the Endless could teach her little brother how to crack jokes and pick a random peasant to do a fun little experiment on, then one named Desire should be a riot. Then again, Hob's human logic would also say that one named Dream should be easy-going and whimsical. He knew about one percent or less of what there was to be known about the Endless he had met regularly throughout most of his life (and he knew himself to love). How could he guess anything about an Endless he'd never met?
+
+From what he had picked up, Desire was not boring, but they were not the good type of fun, either. A _mean queen_, Hob's friends from the late 80s would've called them. _Queer and bitchy is not a personality_. They were the golden-eyed blonde he had seen on Dream's stained glass windows. They were relentless. Their rivalry with Dream stemmed from the fact that they resented the overlap between their realm and Dream's. They couldn't possibly be pulling the strings behind the invasion because of this or that Endless law. They most definitely were. They had been involved in Dream's imprisonment.
+
+This last part made Hob scream as he drove his sword into a demon's central (out of five) torso, far enough that he ended up coated in ichor up to his elbow.
+
+He sometimes saw Dream, the majority of times glimpses on the battlefield. Hob had been very wrong to assume he had been heading out to battle when Lucienne had handed him a sword. He never held a weapon, not in the traditional way. The shadows that bent around him were his weapons. He shapeshifted. He squeezed the life out of a demon with his bare hands. Hob had never seen his helm before, and that thing made him quake like any demon _wished_ they could make him quake. Every time he managed to spot Dream somewhere in the battlefield, his efforts redoubled. That creature, that beautiful, terrifying, impossible creature. He was ready to singlehandedly bring about Hell's downfall for that creature.
+
+Fewer times, he'd actually get a chance to talk to Dream when the council held hurried meetings on the edges of the battlefield. They weren't precisely pleasant little chitchats. Dream: otherworldly, barely shaped like a person, black-eyed. Hob: impatient, brimming with adrenaline, covered in mud, blood and ichor. Hob would insist that he could fight more, let him fight more, stop keeping him away for so many hours. Dream would snap that he would do no such thing, that Hob was being reckless as it was.
+
+"**I am already going against my very nature by using your sleeping hours for battle. You need to _rest_, Hob.**"
+
+"I'll rest when I'm dead." Hob winked (causing some mud to get into his eye) and pulled on Night Mare's reign, galloping away towards his next victim. Dream's lips no longer twitched when he tried to soothe his scowls with humour.
+
+His orders, if they could be called that, never came to him explicitly, but in the form of the situation he'd find himself in when he appeared in the Dreaming, mostly vis à vis the presence of Night Mare. Was he on foot with Night Mare nowhere to be seen when he appeared? Then his orders for tonight were to stand his ground and destroy any demons that came near. Did he appear already on her back, mid-gallop, or next to her, holding the reins? Then tonight he was going to cover more terrain, maybe circle the entire battlefield. If Matthew showed up at any moment, then he also reported on anything different he had spotted. If his agenda wasn't already full with his demands for more hours on the job, then he'd give Dream a piece of his mind about clear instructions. It was all like, well, a _dream_, where he just sort of knew what he was supposed to do, but he was conscious enough to doubt himself from time to time.
+
+Tonight, Night Mare had been there when he appeared, and it felt like a scouting night. As he rode away from Dream (Dream's scowl burning in the back of his mind), he decided he was going to make a wide arc around the battlefield and find a good vantage point to examine the situation. He felt a bit silly doing so; he still didn't see himself as any sort of strategic genius, but Dream had said his insight would be most appreciated so insight he would bring.
+
+At his command, Night Mare slowed down to a trot. He wasn't somewhere that could be considered a vantage point. It was a beach of black sands, lower than the grounds where most of the fighting was being done, so he saw less than before. Why had he come here? He couldn't explain it. He had just been drawn here, and considering the bizarre nature of how he got his orders, he didn't question it too much. He stopped Night Mare altogether and dismounted. The battle was towards the mainland, so to speak. He turned towards the sea.
+
+On a rock surrounded by water, several feet away from the shore, sat a woman. She was naked, her auburn hair falling gracefully over her pale body. She was wearing a pearl necklace and had a matching pearl broche in her hair. When Hob met her eyes, she curled one finger in coquettish invitation.
+
+Hob realized he had taken a step forwards when he heard a splash and felt the cold of the water through his leather boots. _Don't be so dense, Gadling,_ he reprimanded himself. _If you searched for the definition of "siren" in a dictionary, she'd be pictured next to it._
+
+He could not hear her, but he saw her laugh before waving off her own invitation. _So cliché!_ she mouthed. She was most likely a dream, the dream of a sailor, and she had just wanted to have a quick laugh with the funny little man she had spotted on the shore. Continuing with their strange game of charades, she mouthed, _I'll do better!_ and did an exaggerated thinking gesture, eyes turned to the sky and index finger tapping her chin.
+
+Hob was certain that he knew the man on the rock (for it was a man now). He was large and muscular, with skin toasted by a job outside. A job like plowing the fields day in and day out, fields near to Hob's own, that he would walk by on his way to town and they'd greet each other, then meet each other again in a tavern, where they would drink and laugh and keep drinking until the memory of being pressed against a wall in a dark corner with a hand down his breeches was so eroded that he could only guess it had been this man and not another.
+
+This time, he caught his step halfway through and instead took a step back. He was starting to dislike this game, and wasn't there something else he should be doing? Why had he come to this beach? Wasn't he headed somewhere different?
+
+She was back to what he thought to be her original form and pouting. _Too long ago?_ She rolled her eyes with her whole head so that Hob could spot it from where he stood. _I don't want to do it the easy way._ When she mouthed "easy", she swept a hand over her hair with a flourish, and it was suddenly black instead of auburn. She made a pantomime of reaching into the water and pulling something out, except she _was_ pulling something out, a black fabric that she then held in front of her body. She covered up to her nose with it, and it was right in the frontier between see-through and opaque so Hob could guess at the pale silhouette behind it but nothing more detailed than that. She shimmied her shoulders, and the fabric shimmied with her. The word "burlesque" popped up in Hob's brain.
+
+She wiggled her eyebrows and her eyes turned from green to dark blue. She was too far away from the shore for something like that to be noticed from there, but Hob was now far from the shore, too. Maybe he should stop walking. Why? He didn't know. Maybe he should keep walking.
+
+Her hair was getting shorter, and it was losing it's glamorous luster. It was messier now, starting to stand up in random angles. His face—the face of the man on the rock, he was a man again—was getting sharper, too, less alluring siren, more alluring vampire. A lord that would woo you with prideful scowls and hidden smiles.
+
+Bile rose up Hob's throat. Fuck, what in fucking hell? He stopped walking abruptly, but even as he did so he knew, deep in his gut: Too late.
+
+There were claws grabbing him by the cheeks now, or long fingernails, or talons, he didn't know. The world was getting fuzzier around the edges. The creature's eyes were in front of him, and they weren't green or blue, but golden. He felt his legs give in, but the hand clutching his face kept him from falling.
+
+"Oh, Dream," he heard a voice croon just before everything went dark. "You know I _always_ go for the heart."

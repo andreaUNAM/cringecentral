@@ -6,7 +6,7 @@ They had been sitting in silence for almost two hours. After his sister left, Dr
 
 "Duck, these are hardly peaceful times—"
 
-"**There won't ever be such times, Hob,**" Dream muttered and slammed his hands down on his lap, but Hob wasn't going to be dragged into his game.
+"**There won't ever be such times, Hob,**" Dream growled and slammed his hands down on his lap, but Hob wasn't going to be dragged into his game.
 
 "You very well know that I believe that there will be, and sooner than we expect," he answered calmly. "And all I want is for you not to be amidst some emotional turmoil when—"
 
@@ -44,7 +44,7 @@ Dream didn't get the chance to complain about Hob breaking the kiss before Hob's
 
 "Yeah, love, me too. Bedroom?" _Centuries_ he had waited for this. It was _not_ happening on a shitty couch. He nudged at Dream's hips because he weighted nothing at all yet no force on Earth could've moved him if he didn't choose to be moved.
 
-Dream kissed him as he slip off his lap and stood up, forcing Hob to scramble to follow him up lest they stop touching for even a second (unforgivable sin). It was not the first time Hob blindly led someone towards his room, and yet he still managed to miss the door and ended up pressing Dream against the wall next to it. Oh, well. They could have a little pit stop here, no harm, no foul.
+Dream kissed him as he slipped off his lap and stood up, forcing Hob to scramble to follow him up lest they stop touching for even a second (unforgivable sin). It was not the first time Hob blindly led someone towards his room, and yet he still managed to miss the door and ended up pressing Dream against the wall next to it. Oh, well. They could have a little pit stop here, no harm, no foul.
 
 With the hand that wasn't cradling Dream's head, Hob began to push Dream's coat off his shoulders. When it fell to the floor and revealed the short-sleeved black tee underneath (bare arms, scandalous), Dream shivered. Hob smirked against his lips. Oh, he couldn't wait to break past the stoney façade and make him squirm.
 
@@ -56,7 +56,7 @@ When Dream opened his eyes again, for a split second they were a thousand miles 
 
 "Dream, what just happened?"
 
-He almost stormed out, Hob was sure of it. Hob would've gotten really pissed if he had, not because of his own current situation, which by now was a half-situation and was quickly becoming a no-situation, but because whatever was Dream's current deal was was worrying him the fuck out of his mind. The old Dream would've stormed out. This Dream just considered the option very heavily.
+He almost stormed out, Hob was sure of it. Hob would've gotten really pissed if he had, not because of his own current situation—which by now was a half-situation and was quickly becoming a no-situation—but because whatever Dream's current deal was was worrying him the fuck out of his mind. The old Dream would've stormed out. This Dream just considered the option very heavily.
 
 "Please, talk to me."
 
@@ -80,7 +80,7 @@ Dream started toying with the hem of Hob's shirt and smirked. "**Can we stop tal
 
 "Are you okay?"
 
-"**With you around?**" Dream threw his arms around Hob's neck. "**Always.**"
+"**With you around, my knight?**" Dream threw his arms around Hob's neck. "**Always.**"
 
 Dream's mouth now tasted like the sleep that welcomes you after a long day.
 
