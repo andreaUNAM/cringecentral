@@ -488,7 +488,7 @@ Swallowing down the rising butterflies, Hob replied, "I'll try to live up to you
 
 It was an interesting time to be Hob Gadling. By day, he was a teacher. By night, he was a knight. Like fucking Batman, if Batman had an actual day job.
 
-His reluctance to be sent back to the Waking World during the day diminished just a teensy bit when he learnt that he wasn't the only one working in shifts. The dreams and nightmares chosen to fight (nightmares of great violence and pain, dreams of protection, safety and healing) were not constantly on duty on the battlefield. On rotations, they were sent out to the rest of the Dreaming, to visit the different dreamers, to do they job they had been created to do and not the one they were forced to do by the horrors invading their realm. This had a dual purpose: one, the dreamers and their sleep had to continue their usual existence without disturbance. Two, the dreams and nightmares needed the distraction. They needed to surround themselves, even for small fractions of time, in the familiarity of their purpose. They found reinvigorating peace in their usual duties, just like Hob did in his classroom.
+His reluctance to be sent back to the Waking World during the day diminished just a teensy bit when he learnt that he wasn't the only one working in shifts. The dreams and nightmares chosen to fight (nightmares of great violence and pain, dreams of protection, safety and healing) were not constantly on duty on the battlefield. On rotations, they were sent out to the rest of the Dreaming, to visit the different dreamers, to do the job they had been created to do and not the one they were forced to do by the horrors invading their realm. This had a dual purpose: one, the dreamers and their sleep had to continue their usual existence without disturbance. Two, the dreams and nightmares needed the distraction. They needed to surround themselves, even for small fractions of time, in the familiarity of their purpose. They found reinvigorating peace in their usual duties, just like Hob did in his classroom.
 
 Still, he wanted to fight more.
 
@@ -514,7 +514,7 @@ Fewer times, he'd actually get a chance to talk to Dream when the council held h
 
 "**I am already going against my very nature by using your sleeping hours for battle. You need to _rest_, Hob.**"
 
-"I'll rest when I'm dead." Hob winked (causing some mud to get into his eye) and pulled on Night Mare's reign, galloping away towards his next victim. Dream's lips no longer twitched when he tried to soothe his scowls with humour.
+"I'll rest when I'm dead." Hob winked (causing some mud to get into his eye) and pulled on Night Mare's reins, galloping away towards his next victim. Dream's lips no longer twitched when he tried to soothe his scowls with humour.
 
 His orders, if they could be called that, never came to him explicitly, but in the form of the situation he'd find himself in when he appeared in the Dreaming, mostly vis à vis the presence of Night Mare. Was he on foot with Night Mare nowhere to be seen when he appeared? Then his orders for tonight were to stand his ground and destroy any demons that came near. Did he appear already on her back, mid-gallop, or next to her, holding the reins? Then tonight he was going to cover more terrain, maybe circle the entire battlefield. If Matthew showed up at any moment, then he also reported on anything different he had spotted. If his agenda wasn't already full with his demands for more hours on the job, then he'd give Dream a piece of his mind about clear instructions. It was all like, well, a _dream_, where he just sort of knew what he was supposed to do, but he was conscious enough to doubt himself from time to time.
 
@@ -536,10 +536,56 @@ She was back to what he thought to be her original form and pouting. _Too long a
 
 She wiggled her eyebrows and her eyes turned from green to dark blue. She was too far away from the shore for something like that to be noticed from there, but Hob was now far from the shore, too. Maybe he should stop walking. Why? He didn't know. Maybe he should keep walking.
 
-Her hair was getting shorter, and it was losing it's glamorous luster. It was messier now, starting to stand up in random angles. His face—the face of the man on the rock, he was a man again—was getting sharper, too, less alluring siren, more alluring vampire. A lord that would woo you with prideful scowls and hidden smiles.
+Her hair was getting shorter, and it was losing it's glamorous luster. It was messier now, starting to stand up in random angles. His face—the face of the man on the rock, he was a man again—was getting sharper, too, less alluring siren, more alluring vampire. A Lord that would woo you with prideful scowls and hidden smiles.
 
 Bile rose up Hob's throat. Fuck, what in fucking hell? He stopped walking abruptly, but even as he did so he knew, deep in his gut: Too late.
 
 There were claws grabbing him by the cheeks now, or long fingernails, or talons, he didn't know. The world was getting fuzzier around the edges. The creature's eyes were in front of him, and they weren't green or blue, but golden. He felt his legs give in, but the hand clutching his face kept him from falling.
 
 "Oh, Dream," he heard a voice croon just before everything went dark. "You know I _always_ go for the heart."
+
+## Chapter 9
+
+Dream was everywhere. In the battlefield, fighting. In his palace, talking strategy with Lucienne. Visiting dreams, making sure everything kept running smoothly despite the war. He was used to this sort of omnipresence. Enjoyed it, even, because it was a reminder that he was no longer in a cruel cage within a binding circle. It was natural to him to have his essence spread around the Dreaming.
+
+The first night Hob had shown up in his palace, he had suddenly been _just there_. Hob Gadling had wandered into his throne room (just like Rose Walker had recently done, too), and Dream was both angry and terrified. He knew it was too soon for another vortex, and he also knew that Hob was there because Dream's heart of hearts had been reaching out to him every single night since he last saw him in the Waking World. But Denial is such a wonderful thing that maybe it should be the eighth Endless. So Dream tried to stomp and yell and sneer his problems (his beloved) away. His want of protection, of having Hob vanish the Morningstar's armies for him like he had once done with Constantine's hired goons, it was as selfish as it was foolish. This was not a pair of human men with knives, but a hoard of beings from the darkest corners of Hell. If he could only reason with Hob...
+
+But he could not reason with anyone when Hob was holding him like that and swearing oaths of love and loyalty to him. Hob didn't want to fight for the sake of fighting; Hob wanted to protect Dream, to kill for Dream. If this had happened at any previous moment in their relationship, Dream would've surely reacted similarly to how he had in 1889. This bag of meat and muscles and sinew, who may not die but can still bleed, protecting _him_, the concept of dreams personified? But this was not 1889 nor any time before that, and not only was Dream beginning to learn to keep his pride from destroying his relationships, he also craved safety like had never craved it before. (If Hob had been there, Roderick Burgess's death wouldn't have been an accident; Hob would have slammed his head against the glass himself. He would've shot Alexander Burgess with the same shotgun that had killed Jessamy.)
+
+Maybe there was a part of him that knew himself to be making a mistake when he fulfilled Hob's wish, but when a newly-knighted Hob smiled at him, all doubts evaporated. This could be a good, nay, a _wonderful_ thing.
+
+Hob was ruthless in battle, but he was also reckless. Wherever he went, whether on foot or on the horse Dream had gifted him (and Dream was still deciding if he liked the name Hob had given her), demons fell by the dozen, but not without injuring Hob as well. All Dream wanted was to have Hob with him in his realm at all times, but he knew he had to limit Hob's time in the Dreaming or else he would drive himself mad in battle. Clearly, Hob was not willing to give himself the rest his mind needed, so Dream had to intercede.
+
+Despite his extended consciousness, Dream forced himself not to constantly observe Hob when he was in the Dreaming. It had actually been more of a decision taken with his council. With a particular member of his council. With Matthew, when he told him he was being "fucken creepy, boss". When Hob had ridden away after his quip that Dream had found, despite the man's immortality, in poor taste, Dream let him slip away from his awareness, partially to stop being "fucken creepy, boss", and partially to be petty. If Hob wanted to continue to throw himself headfirst into danger without rhyme or reason, so be it, but Dream wasn't going to bear witness to such idiocy.
+
+He should've been watching. He should've known something was wrong. He should've realized something was amiss before spotting Night Mare galloping around the battlefield, riderless.
+
+All of a sudden, his essence was in a single place again: standing in front of the horse, holding her reins and soothingly rubbing her neck. "**It's all right, She Who Brings The Twilight.**" (For this was the name Dream had given her when he had created her.) "**Just tell me what happened. Where is he?**" The mare continued to paw the ground, offering no response. "**Night Mare. Answer me.**"
+
+Night Mare lowered her head. "I'm so sorry, my Lord," she replied. "I don't know what came over me. We rode towards the beaches on the far end of Your realm. There was a presence; it distracted him and terrified me. I ran away, I don't think he noticed, and when I came back he was gone." She was trembling now. "You trusted me with his safety and I failed You, Your Majesty. I am sorry."
+
+He wanted to unmake her. What is the point creating a dream specifically to guard a dreamer if she could not do that single task?! Dream's hand tightened on her reins, and she groveled even more. A thought stopped him, **_Hob would be very upset._** He pried his hand away from the reins and tensely ordered, "**Stay out of the battlefield until I call upon you again.**"
+
+With one last bow, she vanished in a cloud of sand. Dream did the same, and reappeared in his throne room.
+
+Lucienne was waiting for him where he had left her in the middle of a sentence when his consciousness had folded itself into a single point in the Dreaming. He did not let her say the second half of that sentence. "**Where is Gault?**" He may have phrased it as a question, but it was a command that summoned the dream to the throne room immediately.
+
+"Sir—" Both Lucienne and Gault spoke at the same time, and surely both of them were intending to offer some commentary about Dream's agitated state.
+
+Dream interrupted them, "**Gather as many dreams and nightmares as you see fit for a search party. Do what you must to find him.**" He was pacing, he didn't know when he had started pacing, but when Gault opened her mouth to reply (probably to argue, there was no need for a reply, she should already be gone), he stopped dead in his tracks and turned to her. "**FIND HIM!**" His voice invoked the terror of a fevered man unable to awake from a nightmare.
+
+Gault nodded a bow and flew away. Dream resumed his pacing.
+
+"**I cannot find him, I cannot feel him. I did not sense him leaving the Dreaming, and yet he is _gone_.**" He pressed his palms to his eyes and let out a sound between a scream and a growl. "**I did this, I did this, I—**" His hands fell away and his eyes snapped open. "**Desire.**"
+
+"You don't know that." Lucienne's voice, cold and direct, cut through the surge of rage pounding in his head.
+
+He turned to her with a snarl. "**I don't know that? Who else would _dare_. Not even the Morningstar themself. My sibling will pay for this with their _head_.**"
+
+Why did he keep around a librarian as counselor if she didn't have the decency to even flinch when faced with the King of Nightmares' anger? "That is exactly what you can't do, my Lord. You have not gathered enough proof of their involvement in this war, let alone Hob Gadling's—" Here she did swallow and bow her head. "Disappearance," she finished, almost a whisper.
+
+Dream could feel himself unfolding again, becoming jagged shadows and grasping claws and bloodied teeth. "**I. Don't. _Care_,**" a shadow bellowed and a claw hissed and a tooth snapped. "**I will go to Desire and tear them apart until they tell me—**"
+
+It started as it always did, with the slightest of pulls to the core of his being. A call to attention. Lucienne was watching him with curiosity. She did not understand why he had stopped talking or why his form had suddenly regained its more solid shape. She did not feel it. She did not hear the voice that rang around every inch of the Dreaming.
+
+"Attend, brother dearest. I stand in my gallery and hold your sigil. I think it's time for some negotiations, don't you think?"
