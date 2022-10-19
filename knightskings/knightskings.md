@@ -589,3 +589,73 @@ Dream could feel himself unfolding again, becoming jagged shadows and grasping c
 It started as it always did, with the slightest of pulls to the core of his being. A call to attention. Lucienne was watching him with curiosity. She did not understand why he had stopped talking or why his form had suddenly regained its more solid shape. She did not feel it. She did not hear the voice that rang around every inch of the Dreaming.
 
 "Attend, brother dearest. I stand in my gallery and hold your sigil. I think it's time for some negotiations, don't you think?"
+
+## Chapter 10
+
+Dream stormed into The Threshold ready to tear Desire apart, and his determination grew when he was faced with the scene in Desire's gallery.
+
+His sibling was lounging on their crimson chair. They were wearing a long, red skirt cut on the side up to their upper thigh revealing the fishnet stockings underneath, and a long-sleeved blouse of the same color, loosely tied over their sternum with a flimsy bow. Their attire should've been of no concern to Dream, but there was something infuriating about seeing them dressed so casually while causing such devastation in Dream's realm.
+
+Regardless of that, Dream did not pay more than half a second of his attention to their display of nonchalance, center stage and illuminated to draw all eyes in. What was truly important was off to the side, in the shadows created by the cavernous structures of Desire's palace. He was clearly unconscious, but his head was held aloft by the snaking black straps that gagged him and curled around his neck to securely fasten his arms across his torso, all of it pulled taut to keep him upright in his kneeling position. No one, not even Dream in his unending pride, should ever make Hob Gadling kneel. He was wearing not his armor but his sleeping clothes (soft pants and a cotton shirt), leaving him horribly vulnerable.
+
+"Dream, Dream, Dream, _so_ nice of you to join us—"
+
+Desire was wearing a red ribbon snug against their neck as a necklace. This is what Dream used to lift them out of their seat and up into the air. "**Every time I think you have gone too far, you find a new way to be an insolent fool. You launch an attack against my realm, and then you take him from me. You think you will not pay dearly for it all?**"
+
+Desire had the gall to look entertained, and Dream considered throwing them across the room. "Now, now, big brother. _Allegedly_ launched an attack against your realm. And—" Their eyes flitted over to Hob before gazing down at Dream again. "Well, I can't really claim I don't have your boytoy, now can I?" They threw their head back and laughed, the way Dream's hand started shaking against their throat probably strengthening their good humour. "Robbie, baby, look who's here!"
+
+When Desire snapped their fingers, Hob's eyes flew open. He looked around in panic, a hoarse scream muffled by the gag, and when he spotted Dream, his panic intensified. Without a second thought, Dream unceremoniously dropped Desire back into their chair. Forget Desire, forget the Morningstar. All that mattered was getting Hob to safety. He took a step towards Hob.
+
+"Wait." He didn't obey the command. He wasn't one to obey anything or anyone, definitely not his traitorous sibling. But he did wait, or to be more precise, he hesitated because there was none of the usual playfulness in Desire's voice. An arm snaked around his torso to hold him in place and a chin rested on his shoulder. "I did say we were going to negotiate, little Dream," Desire whispered next to his ear. "He can be yours again, for a price." His bindings were too tight to allow any movement, but Dream was sure Hob was trying to shake his head.
+
+"**What makes you think that you have any claim—?**"
+
+"You are a guest here in my realm, dearest. You can't waltz in and grab my new decoration, that's quite rude."
+
+Precisely. That is how the Endless were bound to behave in each other's realms, which is exactly what had haunted Dream's every thought since the invasion began. "**And yet you came to mine and did as you pleased,**" he growled.
+
+Desire slid off him just so he could see the feigned confusion on their face. "Remind me again, when was the last time I was in the Dreaming?" They placed a finger on Dream's lips before he could answer. "That you have proof of, of course." They waved a hand at Hob. "What matters is that he is here now, under my possession. And I have a very generous deal I want to strike with you for him. Get 'im while he's _hot_."
+
+Inquiring about the deal equaled, in Dream's mind, to begging. "**He is not here physically. His body remains in the Waking World.**" He had checked a millisecond before accepting Desire's invitation. He had looked so peaceful and unbothered.
+
+Desire raised their eyebrows. "Oh, Dream! You dog!" they tittered. Dream was getting sick of how everything he did or said only amused his sibling even further. "If all you want is his body, then we are done here, go have fun!"
+
+Anger and shame colored Dream's cheeks. He looked at Hob, hoping to convey without having to say it in front of Desire that his words had been unfairly twisted. No, that was not enough. His pride, his stupid pride again. "**That is not what I meant, you know that.**"
+
+"I know, I know," Desire replied even though the statement had not been directed at them. They tapped Dream on the nose, and Dream wanted to rip the appendage out of its socket with his teeth. "I'm just having some fun, you know me."
+
+"**The deal, Desire,**" Dream hissed, growing tired of their games. "**What do you offer?**"
+
+"Oh, it is a marvelous offer, just you wait. Here are your options: Option A," they clapped their hands once and a spotlight illuminated Hob. The man blinked under the sudden change in lighting. "You take this scrumptious specimen home _and_ Luci's assault on the Dreaming ends. A two-in-one deal, you cannot say I'm not generous. In return—"
+
+"**How while you force the Morningstar—?**"
+
+"_In return_," Desire insisted, "you and your Dreaming will become subservient to Despair and to me. You will still be King, you will rule... _mostly_ as you please, but you will answer to _us_."
+
+The shadows on the edges of the gallery flickered and twisted in response to Dream's silent fury. "**To _you_, you mean, my sibling, for you never think of anyone but yourself, not even your twin.**"
+
+Desire ignored him. "Option B: I keep my new toy and Hell decimates your realm. Despair and I will figure out if we have any use for whatever ruins remain."
+
+There was silence. Desire was staring at him with pure malice, but he would not give them the satisfaction of meeting their eyes. Instead, he turned to Hob. Again, despite his bindings, the minute movement of his head was clear: a nod. He was silently giving Dream permission for something, and Dream knew exactly for what because this was Hob, the man that the centuries had molded into a kind and selfless soul: _Leave me behind_. Desire's second option was half empty threats. If Dream refused their offer, he could still go back and win the war, crushing Hell under his... what had Hob called them? Doc Martens? All he had to do was leave Hob behind.
+
+"**No,**" he answered Hob, although Desire once again probably thought he was talking to them. "**My pride has hurt you once before. I will not repeat that mistake.**" Hob's eyes grew wide again, and he strained against his bindings as he tried to speak through the gag.
+
+The malice in Desire's expression had grown exponentially, accompanied now by the tiniest speck of surprise. "Option A, then, I presume?"
+
+Dream knew himself to have rows upon rows of needle-sharp teeth when he smiled at his sibling. "**Option C. You release Hob. The Dreaming remains independent from your influence,**" Desire frowned and opened their mouth, but Dream wasn't done yet, "**_but_ I step down from my throne.**"
+
+This time, Hob's "No!" was loud enough to be heard despite him being gagged. Neither Endless paid him any mind.
+
+"**If the Morningstar wishes to continue their assault, I know my creations to be more than capable of stopping them.**"
+
+Desire's frown grew deeper. "I am failing to see what I gain from that."
+
+"**What _you_ desire, my sibling.**" Dream's face was now inches away from Desire's. "**My humiliation. It may not satisfy the Lightbringer's thirst of conquest, but that does not interest you. You only want to see me humiliated.**"
+
+When Desire smiled, the bowels that Dream did not need shrivelled, but he knew that he had won, if one could call this a victory. "And you'd really do that?"
+
+"**For his safety and the safety of the Dreaming? Yes.**" Dream then added in his head, **_Anything_**, but it was better to keep that from Desire, lest they grew greedy. Greedier, that is. "**Allow me one final communication with my council and you'll have your prize.**"
+
+Desire rolled their eyes. "You can write them a bye-bye letter from your retirement home." They snapped their fingers, the bindings disappeared, and Hob, unconscious once again, fell to the floor. "And don't forget your peasant on the way out." They sat down again and began inspecting their nails. "I swear, _musk_ is one thing, but that one? Don't you wash your things, Dream?"
+
+Dream was no longer listening. He crouched down next to Hob and gently cradled him in his arms. His cloak grew around them, and with one final glacial stare at his sibling, they left the Threshold.
