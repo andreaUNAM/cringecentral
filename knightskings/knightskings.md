@@ -612,7 +612,7 @@ When Desire snapped their fingers, Hob's eyes flew open. He looked around in pan
 
 "You are a guest here in my realm, dearest. You can't waltz in and grab my new decoration, that's quite rude."
 
-Precisely. That is how the Endless were bound to behave in each other's realms, which is exactly what had haunted Dream's every thought since the invasion began. "**And yet you came to mine and did as you pleased,**" he growled.
+Precisely. That is how the Endless were bound to behave in each other's realms, which was why Dream's every thought since the invasion began had been haunted by questions of Desire's involvement. "**And yet you came to mine and did as you pleased,**" he growled.
 
 Desire slid off him just so he could see the feigned confusion on their face. "Remind me again, when was the last time I was in the Dreaming?" They placed a finger on Dream's lips before he could answer. "That you have proof of, of course." They waved a hand at Hob. "What matters is that he is here now, under my possession. And I have a very generous deal I want to strike with you for him. Get 'im while he's _hot_."
 
@@ -654,8 +654,326 @@ Desire's frown grew deeper. "I am failing to see what I gain from that."
 
 When Desire smiled, the bowels that Dream did not need shrivelled, but he knew that he had won, if one could call this a victory. "And you'd really do that?"
 
-"**For his safety and the safety of the Dreaming? Yes.**" Dream then added in his head, **_Anything_**, but it was better to keep that from Desire, lest they grew greedy. Greedier, that is. "**Allow me one final communication with my council and you'll have your prize.**"
+"**For his safety and the safety of the Dreaming? Yes.**" Dream then added in his head, **_Anything_**, but it was better to keep that from Desire, lest they grow greedy. Greedier, that is. "**Allow me one final communication with my council and you'll have your prize.**"
 
 Desire rolled their eyes. "You can write them a bye-bye letter from your retirement home." They snapped their fingers, the bindings disappeared, and Hob, unconscious once again, fell to the floor. "And don't forget your peasant on the way out." They sat down again and began inspecting their nails. "I swear, _musk_ is one thing, but that one? Don't you wash your things, Dream?"
 
 Dream was no longer listening. He crouched down next to Hob and gently cradled him in his arms. His cloak grew around them, and with one final glacial stare at his sibling, they left the Threshold.
+
+## Chapter 11
+
+Hob's peaceful awakening lasted him a ridiculously short time. As his neurons reconnected and the memories flooded back, the old habit of "it was just a dream" tried its best to fix the impending crisis with a good dose of denial. It accomplished nothing. He threw his sheets aside with a resounding "Fuck!", ready to go somewhere but with no idea where. Maybe if he downed five mugs worth of chamomile tea to calm his nerves, he'd be able to fall asleep again and enter the Dreaming, but could he get there fast enough before Dream delivered his **_one final communication_**? Where would Dream go now? Was he really planning to step down? Why the fuck didn't that stupid man-shaped _idiot_ have a fucking mobile?!
+
+Hob was standing next to his bed, ready to take on the Universe in a fistfight in his bloody pajamas and shaking like a Chihuahua on a massage chair.
+
+And he was being watched.
+
+Dream was sitting on the foot of his bed, the edges of him blending with the shadows behind him. His eyes were gleaming. Hob had started to get used to the stars that shone from within them in the Dreaming, so it took him a moment to realize that there were no stars, only tears reflecting the early rays of sunlight peeking in through the curtains. The rest of his expression was stony. He looked rather out of it.
+
+It was a very strange experience to feel a friend become solid in your arms. When Hob closed the space between them and hugged Dream, there was a moment when he swore his arms were going right through him, but then he was holding something. It wasn't a body, but it was _something_. It made the hairs on his arms stand up. Slowly, it began feeling more and more like actual mass, until it felt like he was hugging another person. He wasn't, but how could that bother him? He was hugging his best friend.
+
+Apart from his solidification, Dream didn't react to the hug. Because of the awkward angle with Hob standing and Dream still sitting, Dream's face ended up pressed against Hob's chest. Not in a way that suggested he wanted it there, but in one that suggested he had not realized Hob was there. "**Did I really just do that?**" His voice was muffled by Hob's shirt, and Hob tried to ignore how the sound tickled his skin through the thin fabric.
+
+Hob moved back to look at Dream's face, and yes, his instincts had been right, the tears were starting to spill. "You're asking _me_, love?" The awkward angle remained, Dream titling his head back to look up at Hob, and Hob was, for some bleeding reason, cradling his head between his hands. It all seemed to be staged to perfection so all Hob had to do was bend down and—No. Focus. "I did not understand half of what happened, and I was unconscious for the other half. I know shit-all. As usual." He gave Dream a lopsided grin that he hoped disguised the fact he was lying through his teeth. He had understood enough, and there was a part of him that wanted to yell at Dream until his voice was hoarse about how monumentally stupid he had been. **_My pride has hurt you once before. I will not repeat that mistake._** Yeah, that was really sweet and all, but not wanting to ever leave Hob brokenhearted in the rain again was one thing. Giving up your goddamn throne was a whole other fucking thing, you dense bastard!
+
+Yelling was not going to accomplish anything. He would eventually mention it to Dream, but not right now, not when he was crying and barely hanging on to his physical form. Instead, Hob rubbed circles with his thumbs into the sides of Dream's jaw. "If I may ask," he began gently, "how is this going to work? I thought you _were_ the Dreaming." _And you don't appear mortal to me,_ he didn't comment, because that thought had flashed through his mind: a fallen angel, a divine king turned mortal commoner. Hob would've loved him all the same, but... he would've been mortal. And Hob wasn't. It was, in a strange way, a relief to see him still be so unnervingly supernatural.
+
+Dream closed his eyes, which proved that at least the massage was doing something. "**It's symbolic,**" he explained in a murmur. "**I cannot disconnect myself from the Dreaming, not completely, at least, but by swearing an oath so binding, I cannot command it anymore. I am now similar to a power generator like the ones you humans use for your electronic devices; I cannot command my creations just like it cannot command the electrons that flow out of it.**" Hob had once tried to learn something about electromagnetism. It had not gone well. He was just going to accept the word of an otherworldly being who had been MIA for most of the past century and not question the simile. He wanted to make a joke about it, but then he felt Dream start to tremble between his hands. Dream spoke again, voice breaking, "**I can still feel them, each and every one of them, fighting _my_ war.**"
+
+Hob hugged him again, and this time, Dream did consciously bury his face into Hob's chest. "Hey, hey, hey. We'll figure something out, I promise. It's going to be okay." He rubbed Dream's back. "Have you contacted Lucienne yet?"
+
+"**I sent her a letter explaining what had happened and, as my final instruction as her king, appointing her the head of my army. I am certain she will perform admirably.**" He buried himself deeper into Hob's chest. "**Better than I ever could.**" Hob pretended not to hear that last part because this was Dream, vanity incarnate from the tip of his messy hair to the tip of his goth boots, and self-deprecation was not something he did.
+
+"Just a letter? I think she should hear it in person." It wasn't Hob's intention to make Dream feel bad (or worse, in this case), but he had been dumped over mail a few times and over text another few, and it was never a fun experience.
+
+"**It was part of my sibling's terms and therefore part of the oath I swore.**"
+
+Desire had treated it all with levity, but Dream spoke of it like there had been a Bible involved. "I mean, I didn't hear you say "I swear" or anything, I'm sure you can find some wiggle room," Hob said, trying to keep his tone light because he was sure this went beyond his puny human comprehension.
+
+The only wiggle room Dream seemed willing to find was between Hob's arms and body to separate his face from his chest and look up at him with a raised eyebrow. "**Hob Gadling, are you trying to convince me to go back on my word?**"
+
+"I'm just saying it wasn't an oath."
+
+"**The Hecatae would not agree with you.**"
+
+"Tell them to come talk to me over a pint, I can be very persuasive." And there, the slightest hint of mirth in Dream's eyes. "I told you, we'll figure something out."
+
+"**I thought those to be empty words of comfort, offered without true intention or meaning.**"
+
+If Dream wanted to cling to the joy he had found in the form of banter, then Hob would give him banter. The time for seriousness and planning would come later. "You wound me, duck, oh so deeply. I would not dare to speak banalities in your presence."
+
+"**You would return your King to his rightful throne?**"
+
+"Aye. But not before breakfast or a shower, though." He slowly released Dream from his embrace, and he knew he wasn't imagining it when Dream's hand clung momentarily to his bicep. "I'm not going far," he reassured him. "Make yourself at home, alright? Be right with you." In a surge of bravery, he placed a quick kiss to the top of Dream's head before heading towards the bathroom.
+
+It's not that he wanted to believe the bullshit that came out of Desire's mouth, but they had had a point with that last comment; with his head so wrapped up in the war, Hob may have not been keeping up with his self-care as much as he usually did. He wasn't going to do much today, either, not with Dream waiting for him, but he did want to be a bit more presentable than pajamas he hadn't washed in a while and morning breath. After a quick shower, he grabbed his phone as he toweled his hair dry and (struggling slightly to make the stupid touch screen respond to his wet fingers) made a call.
+
+His mind was only barely on what he was doing or saying into the phone; it was mostly on Dream. "Hullo? Yeah, I'm not going to make it today. Or in the next few days. Dunno how many." Would he like scrambled eggs? French toast? Hob was definitely going to make him some tea, the fancy stuff, good for the nerves. Good for everything, when you're British. "Family emergency." He almost grabbed a red T-shirt, then remembered he was currently very cross with that particular color (and with curving walls of that color and with anthropomorphic personifications that wore that color) and went for a dark green v-neck instead. "Stu can sub for me, right? I'll send him my PowerPoints." He'd put him back into his fancy black throne on those ridiculous stairs if it's the last thing he did, which it wouldn't be because he was still set on sticking around until the heat death of the universe, and he'd have Dream back in the Dreaming before Christmas break or so help him God. "So he'll give them more time for the essays! Jesus, can't your deadlines piss off for a second?" Something about how he was now going around hugging and being hugged by his Stranger made him double-check his reflection in the mirror before he cursed himself. This was not the time for his vanity. "Yeah, I really need to go now, I'm sure you'll figure something out."
+
+He told himself not to immediately panic when he returned to the bedroom and Dream wasn't there. His instincts were proven right once more when he heard faint rustling coming from the living room. Dream was inspecting one of Hob's many shelves containing all sort of knickknacks from across the centuries. Even with all he had on display, he still had even more in storage. He liked to switch them around every now and then, give them all their time in the spotlight, so there was no sort of order in what was displayed. For example, Dream was currently giving a gentle tap to a John Lennon bobblehead that stood between a puzzle snuffbox Hob had won in a game of cards in 1731 and an IBM Simon.
+
+Dream turned to look at him when he stepped out of the bedroom. He had regained his usual aloof composure, full control over his form, head held high, and no trace of tears. When he offered Hob a smile, it was tiny and somewhat condescending. "**You've got quite a collection.**"
+
+"Thank you, old friend. Breakfast?" Before Dream could say something about not requiring mortal sustenance, Hob amended. "Sorry, did that come out like a question? I meant to say," He pointed a stern finger at Dream, "breakfast." As he put the kettle on and started putting together a simple breakfast of avocado on toast (he had decided to let the tea be the star of the morning, his anxiety was messing with his appetite), he heard "**Insufferable man**", and he knew he was being thanked for his hospitality and his help.
+
+It was a task and a half to convince a being who gave the phrase "divine right of kings" a whole new meaning that one could eat without cutlery while sitting on a couch. Dream only nibbled a corner of his toast before setting the plate down on the coffee table with no intention of ever picking it up again, but at least the tea seemed to be working its magic. Once both of their empty mugs were set down, Hob asked, "Feel better?"
+
+Whatever walls Dream had put back up while Hob had been in the bathroom cracked slightly. "**How can I? When my creations suffer and I cannot help them?**"
+
+"The first step in figuring out how to help them is for you to stop kicking yourself every two seconds." Hob patted Dream's knee, and that was all he had been planning on doing, but then Dream scooted closer to him, their shoulders touching now, and Hob was suddenly incapable of separating his hand from his leg, now a tad more on the thigh than on the knee. He considered bringing up the subject of oath wiggle room again, start talking strategy.
+
+And then the woman appeared in his living room.
+
+## Chapter 12
+
+Of course she knew Hob Gadling. _He_ didn't know _her_, not officially, but that was just part of their whole deal, wasn't it? Well, no, because if she had ever decided to pop by for a chat and a cuppa, it wouldn't have been the same as stopping by to offer her gift, which was what their deal prevented. Given him a proper scare, it would've, obviously. And she would've felt pressured to answer the thousand of questions that dear little Dream always dodged, and that wasn't her place. Better not to drop by.
+
+But she did know him.
+
+How could she not? He was exempt from her gift, but he was so full of love and passion and curiosity, he never gave up on surrounding himself with others that did not share that particularity. And so, several times across the centuries, he had been somewhere nearby as she collected a soul. Or several souls. And she remembers all of them.
+
+Before she even started the gamble with Dream and Hob (the latter as an unsuspecting but enthusiastic participant), the Black Death had already taken both his parents, and war had taken a handful of his friends. She was there, she remembers the souls, he was there, but at the time, he was... she would _never_ call any human "a nobody". He was a friend she hadn't met yet. Still hasn't met. Will meet someday.
+
+After the gamble was struck, there were other wars and other illnesses that took other people. When she showed up, she saw realization evolving in his face. It started as relief at his "dumb luck", they had both been skewered by the same bastard's sword, but apparently it had missed all the important bits in him because he was still breathing. It slowly morphed into disbelief, because surely he had _stopped_ breathing at one point there, it wasn't the fever talking, the treatment had done shit, his lungs had stopped responding. It eventually landed on a mix of elation and terror, the first due to him being a talkative drunk, not a lying drunk, he had meant what he had said that fateful evening. The second because there were still some years to go before 1489, when he would have a chance to ask what kind of deal exactly he had gotten himself into (and he wouldn't get a full answer until many, many, _many_ years later, and really, little brother, was it necessary to leave the poor bloke fumbling all for the sake of your mysterious persona?).
+
+And thus began a period of cockiness. He was sure he wasn't dying anytime soon, he at least knew The Stranger wasn't a devil, and he had found a non-soldiering profession that decreased the amount of horrors he witnessed. She still saw him every now and then, though. Even when he had the money to throw as an attempt to erase her from the edges of his vision.
+
+Just like she remembers all of them, she remembers cradling the baby against her chest with one hand as she helped Eleanor out of bed with the other. Led on by the midwife garb she was wearing at the time, Eleanor had asked her if it was safe to stand "so soon". Led on by the sad look she received as a response, Eleanor turned around to look at the man hunched over in his chair by her bed, by her _body_, his shoulders shaking with his sobs. A finely dressed gentleman, yet his sobs sounded exactly the same as they had had when he was a scrawny peasant boy clinging to his mother as they dragged the body away to the mass grave.
+
+"Oh, Robert. We'll see each other soon enough in the Lord's Kingdom. Won't we?"
+
+Eleanor had looked at her for that last part. Maybe Dream was onto something when he avoided answering questions.
+
+Hob hadn't been there when she came for Robyn, but she saw him in the way the lad's eyes shone with mischief. She bent over to help him up from the floor (not unlike how she had helped his mother out of bed), his hands a bit too grabby with adrenaline and alcohol.
+
+"I am not done with him, 'tis certain," he laughed, but the other man was already being pushed out the door by his friends, a horrified look on his face. And on the floor, a young man with glassy eyes that were staring, but not looking, at his own soul above him, blood pooling around his head where the edge of the table had hit.
+
+She knew that if anyone were to ask Hob, he'd say that from there til at least two centuries later, he hadn't been anywhere close to where Death went about her rounds; he'd learnt a horrid lesson about immortality and love, and had begun to hold the mortal world at arm's length. It would've been a filthy lie.
+
+She saw him staring blankly at the floor as she collected the soul of an old man wrecked by the London cold, still clutching the stale bread Hob had shared with him. She saw him cursing up a storm at the drunk who had shoved the young prostitute over a ledge into the Thames. She saw him and heard the last bit of the story he was telling the boy that fell asleep on his shoulder, never to wake up again. She dreaded the coming of Hob's and her brother's next meeting, thinking that he'd finally ask for her gift. It would've broken her heart. (And Dream's heart, as well, even if he loved pretending he didn't have one.)
+
+It was quite a turn he took when he managed to reinvent himself. She started seeing him less and less, and yet there were those times when she'd collect a soul while in the stuffed belly of a ship and learn, from what a sailor was saying or a captain was writing, the name of the British gentleman that had invested good coin in that ship's travels. She remembers all of those souls. She remembers every time Hob's name was tied to the deed. She knows Hob remembers, too.
+
+One day, those appointments stopped short (the ones tied to Hob, that is, of course. The rest... oh, the rest...). She silently thanked whoever or whatever had finally knocked some sense into his head and some life back into the good heart she knows he carries within. Still, she held on to her anger years after that. This human that she considered a friend in a bizarre one-sided relationship had disappointed her deeply, and even if he was unaware of her anger (and her existence), she'd not grant forgiveness so easily. Either way, the times that followed did not offer many occasions for her to see him.
+
+And then came the horrors of the modern world.
+
+When war broke out across Europe, it was only natural that Hob Gadling would end up in its midst. He had the experience and no reason to use any of the tricks or guiles he'd picked up over the centuries to avoid the draft. It all sounded righteous enough, too, and that's not an honor all of the wars he'd fought in could be awarded. The righteousness of it all evaporated soon enough. The hunger. The chemical weapons. The civilians caught in the crossfire. She began doing something she had never done before: distracting the souls and making sure they did not look back at their bodies. That used to be their choice, whether they wanted to look back or not. Now, she saw to it that they didn't even consider the option. More than once, she left behind one Hob Gadling staring at the burnt corpse.
+
+That was The Great War. The War to End All Wars. There was hope there, in the name. She cannot judge humans for something as beautiful as their hope.
+
+For the life of her (with apologies for the paradoxical choice of words), she couldn't understand what had driven him to join the _Second_ World War. (They were numbering them, now. Hope dwindled sometimes in the face of horrors.) Once again, there were good reasons being used to call the British men to take up arms, but with everything that Hob had lived through already, surely he'd find a way to slip between the fingers of the draft and escape a new wave of man-made nightmares (and those are far worse than yours, little brother). He didn't. He was there, she saw him. Over and over and over and over and over and over again. And war kept getting crueler. It felt stupid to say so, water kept getting wetter, but when your job is to reap what's left behind, you need to say it.
+
+Hob was both a friend and a stranger. He was a human who had no business in the business of the Endless, and yet he was so close to it that calling upon him would've equaled interfering in Dream's affairs. And that is exactly what she was unable to do, bound by ancient laws. She could not interfere, neither in requesting Hob's assistance nor in grabbing a crowbar with her own hands and smashing that cursed _fishbowl_ to pieces, not if Dream didn't explicitly request it. And he didn't. Of course he didn't.
+
+She knew Hob so painfully, so closely, that she forgot that _he_ didn't know _her_, and that's why the first time he met her, formally, was when she appeared in his living room, the second sermon of the decade for her little brother already starting to pour out of her mouth before she'd fully taken form.
+
+## Chapter 13
+
+"Of all the stupid things you've ever done, I swear, this one— you really went all out with this one, didn't you?! Drove straight into StupidTown, no stops! You didn't think, you didn't think, you didn't _think_!"
+
+Hob's brain was unsure of the order of events. The woman was yelling. There was a sound of feathers rustling. There was a woman in his living room. This had all happened simultaneously. Or not. It had been a sequence of events. The order of events was a mystery. There was a woman in his living room, and she was yelling at Dream, gesturing wildly with her arms as she did so. Also... a invisible large bird or some other winged being was involved in all of this somehow?
+
+Hob decided he should give up on what he wasn't good at (thinking) and instead focus on what he excelled at (protecting Dream). His hand tightened on Dream's thigh, and he was ready to physically cover him with his body if the need arose, even though he knew Dream would prefer to fight this battle himself. Except Dream's expression wasn't one of cold fury (the one Hob remembered _very_ clearly), but one of resignation and... embarrassment? That was a new one.
+
+"You— You—" the woman sputtered before throwing her hands in the air. "I can't. I give up. This is too much. _You're_ too much."
+
+Taking advantage of the woman's despaired pause, Dream offered Hob a sheepish smile (another novelty!). "**My older sister,**" he explained.
+
+In Hob's defense, his brain had been turned to mush, and apparently, the first brain cells to return to their senses were permanently stuck in the Regency era. He practically jumped to the other end of the couch. Here was Dream's older sister, catching them alone in Hob's private quarters with Hob's hand on her brother's thigh and not even an engagement to be wed to show in their defense. His next thought was, _Wait, twenty-first century._ The next after that scrambled to mock his use of _private quarters_ to describe his small flat, the mockery a desperate attempt to cover up thoughts of engagements. Finally, somewhere around the fourth or fifth thought, what was truly noteworthy about the situation hit him. "Older sister? You mean..." He swallowed thickly.
+
+The woman's annoyance evaporated and she offered Hob an apologetic smile. "Oh, Hob, I'm so sorry to have barged in like this. It's just..." She gestured at Dream in lieu of an verbal explanation (and her meaning was crystal clear). "But that's not your fault, and we haven't even been properly introduced." And she extended a hand and said the words Hob knew were coming but still hit him like a slap to the face. "I'm Death, Dream's sister."
+
+Hob took in her kind smile, her soft eyes, and the pendant hanging from her neck—an ankh, the Egyptian symbol for life. "But you're so—" He bit his tongue before he could end that sentence in any way he would regret. _Human_ or _nice_ would most likely offend her. _Normal_ would offend both her and Dream. She was probably already offended because he had not taken the hand she had offered.
+
+"Not stupid?" she offered with a pointed glare at Dream, who glowered.
+
+"I wasn't going to say that!" Hob squeaked. He looked at Dream with his hands up in surrender. "I was not going to say that."
+
+Dream didn't appear to believe him, but he didn't comment on it. Instead, he replied to the fear that Hob was embarrassed to say he had. "**You can take her hand, Hob. It won't kill you.**"
+
+"Right, sorry," he mumbled, then tried for a charming smile as he shook her hand (it was warm in the most mundane of ways). "Robert Gadling, at your service, my Lady."
+
+Her smile widened. "I know. Thank you for taking him in. I know he can be a lot sometimes."
+
+"It's my pleasure." Hob felt a hot flush rise to his cheeks. "Just trying to be a good friend, I mean, or a decent one, at least."
+
+There was a knowing look on Death's face, and it only made Hob squirm further into his seat. "You are an excellent friend, Hob. I wish we'd met sooner, but this one," she made a disappointed face at Dream, "never told you jack-shit about himself, let alone his family."
+
+And then she flicked Dream of the Endless on the forehead.
+
+And Dream of the Endless muttered, "**Ow.**"
+
+"I thought that was an ancient-law-forbids-it type of thing," Hob said, fighting back a fond smile at the domestic scene of two siblings squabbling.
+
+"No, that was a Dream type of thing," Death sighed and shook her head. "Like acting without thinking."
+
+While it was nice to have someone to scold Dream when Hob was too scared to do so, he felt it necessary to dot some i's, as it were. "It wasn't his fault, you know. Desire left him no choice."
+
+Death and Dream looked at each other. Hob barely remembered what it was like to have a sibling, but he knew a mental conversation when he saw one. And, hey, considering who these two were, it could be an actual telepathic conversation. If that were the case, Hob would feel a bit awkward and frankly left out, but thankfully, Dream spoke up soon enough.
+
+"**That was just the climax of the story,**" he explained, and Hob almost argued that he wasn't very fond of his kidnapping being referred to as **_a story_**. "**I made a mistake since the moment I allowed you to fight.**"
+
+Dream saying he made a mistake. A rare and precious moment. Hob was somewhat sorry that he was about to take that moment away from him. "Still not your fault. I can be very annoying once I set my mind onto something."
+
+Death's knowing look returned when Dream smiled at Hob. "**That is true, my friend, but it does not excuse my mistake.**"
+
+Wasn't he already going through enough? Did he have to be so harsh on himself on top of it all? "Agree to disagree, alright? But the past's in the past, let's talk future. My Lady, I, uh, I—" He cleared his throat even though it was unlikely that it would vanish his stutter. "Will you help us figure out how to fix this?"
+
+Again, Dream's and Death's eyes met like they were having their own side conversation. Hob might've known this woman for about a second, but he still noted the change in the usual roles when her face remained serious and Dream's lips twisted into a smirk. "**He did just say he can be very annoying.**"
+
+Death cracked a smile, but it wasn't as wide as the others had been. "You really are an amazing friend, Hob, but it's not that easy." She sat down on the arm of the horrid armchair Hob had bought when online shopping was at its infancy (and getting ripped off and delivered a piece of rubbish was the norm). "My brother has made a formal commitment. Destiny is going to have his ass as it is. If he backs down..." She shook her head.
+
+Hob was about to go right back into his spiel about whether the actual words "I swear" had been said when Dream, surprisingly, was the one to retort. "**There could be...**" He paused and looked at Hob before letting out a longsuffering sigh. "**..._wiggle room_,**" he finished as if saying such a pedestrian phrase could kill him on the spot.
+
+"Wiggle room?" Death repeated.
+
+"**My oath was made under duress created by Desire with very suspicious methods. Even if they did not enter my realm, Hob was still taken from the Dreaming to the Threshold. Furthermore, they insinuated having a certain control over the Lightbringer and the invasion of my realm.**"
+
+Hob might've been trying to piece together the ancient laws that no one had the decency to explain to him, now with the added fact of Destiny being discussed like a person, but he was still going to stubbornly step blindly into the unknown if it meant helping Dream. "If it helps..." he began, waiting to be stopped for interrupting a discussion of cosmic proportions. "When I was taken, the... the... whatever took me. Had golden eyes. And... you know. That feels significant."
+
+Dream's expression told Hob that it hadn't occurred to him to ask about Hob's abduction, neither to offer comfort nor as a piece of evidence. Hob wasn't offended. That's just the way his Stranger was. He didn't ask for any further details, either, and Hob was secretly relieved. The bizarre burlesque show, the form Desire (or whoever) had chosen as "the easy way" to tempt Hob... Hob didn't think he was ready to share that information, particularly with a certain older sister present.
+
+"They are toeing the line of how much they can interfere," Death mused. "And you think that will be enough for our brother?" Hob had to wonder if bringing in yet another Endless would be helpful.
+
+"**If we present a good case, Destiny will listen.**"
+
+Right. Dream. Desire. Death. Destiny. Stupid Hob. The pattern could've not been clearer.
+
+"Then you better start working on a spectacular case." Death stood up and brushed her knuckles tenderly against Dream's cheek. Hob felt a warm peace wash over him as he realized he wasn't the only being out there treating Dream with the care he deserved. "But before that... Rest a while, little brother. For me?" She looked at Hob and added, "For us?"
+
+Hob gave her a two-fingered salute and somehow managed to stop himself from commenting that he'd tie Dream to the bed if that's what it took to get him to rest. Again, regardless of the century, not the right comment to make in front of an older sister. "I'll, uh, I'll see to it."
+
+"**This is conspiracy and treason,**" grumbled Dream, but he could not fool Hob, not when his shoulders were relaxed and his scowl was more of a resting bitch face than a scowl.
+
+Death laughed and ruffled Dream's hair. "Of course it is. See you later, alligator." There was another sound of rustling feathers, but this time Hob managed to spot the shadow of wings on the wall around Death's silhouette before she disappeared.
+
+Hob knew he had a big, dorky smile on his face when he turned to Dream. "Oh, I like her."
+
+## Chapter 14
+
+"**Can we have the conversation now?**"
+
+They had been sitting in silence for almost two hours. After his sister left, Dream had closed his eyes and rested his chin on steepled fingers. In order to let him think or meditate or rest or whatever he needed to do in peace, Hob had grabbed a book he had left on the coffee table (a Portuguese novel around the Platonic cave myth). He didn't get very far in his reading; he kept glancing over to Dream, checking to see if he was alright, if he needed anything. It was after one of these side glances that Dream spoke. Hob didn't need to ask what conversation he was referring to.
+
+"Duck, these are hardly peaceful times—"
+
+"**There won't ever be such times, Hob,**" Dream growled and slammed his hands down on his lap, but Hob wasn't going to be dragged into his game.
+
+"You very well know that I believe that there will be, and sooner than we expect," he answered calmly. "And all I want is for you not to be amidst some emotional turmoil when—"
+
+"**I love you.**"
+
+Hob opened his mouth, closed it, opened it again, and finally laughed softly, "When you do that." He could cry. He really could, any moment now, he could feel it rising up his chest like a balloon, but he was still laughing, and he could do both, they wouldn't be tears of sadness, anyway. "You know..." This time, his laugh really did have a sob caught somewhere in it. He ran a hand through his chin and the stubble gathering there since he hadn't shaved this morning. "I always thought I was going to be the first to say it."
+
+Dream's smile was sharp, but there was warmth there, too. "**I win.**"
+
+"You win. I love you."
+
+"**I love you, too.**"
+
+"I think we had already gone through that."
+
+"**I know. I love you.**"
+
+"You going for once for each century, dove?"
+
+"**More like once for each second.**" Suddenly (and by suddenly he means _suddenly_, wisp-of-sand suddenly), Dream was no longer sitting next to him but towering in front of him. With a pale hand on his sternum, he pushed Hob down against the back of the couch and climbed onto his lap.
+
+"Yeah, darling, that did _not_ count as the conversation. We need to talk like grown-ups about how we feel and how this is going to work, and I am going to hate myself for saying this but, Dream, could you please stop kissing my neck for two seconds and look at me?"
+
+The reply was murmured against his pulse point. "**But I cannot kiss your lips because you won't stop talking.**" And then there was a shadow of teeth dragging over his skin. Arrogant cunt.
+
+In this angle, Hob could put his mouth right next to Dream's ear. "Look at me." Dream did so begrudgingly, and his eyes were not blue but black, completely so, except for the twinkle of stars within them. Awestruck, Hob traced a sharp cheekbone with his thumb, and then he met Dream halfway for a searing kiss.
+
+Kissing Dream of the Endless, actually kissing him, not just brushing lips against his hand or nuzzling his neck or hugging him or holding him or squeezing his arm or his thigh, actually kissing him felt beyond what any human, mortal or not, should be allowed to experience. With everything he had dared to do before now, Hob could've fooled himself into thinking he was loving something somewhat close to a man. Occasionally terrifying and intangible, sure, but almost a man. The chance to do that was no longer on the table. When Dream straddled his lap, Hob felt pinned to the spot, and yet Dream weighted nothing at all. He wasn't just light; there was no weight to him _at all_. And when he gasped and Hob used that chance to deepen the kiss, the inside of his mouth tasted like dozing off next to a cozy fireplace with a warm cup of tea in your hands. Not like the taste of the tea, or the lingering smell of the burning wood on your tongue. Like the experience itself, which should not be a taste to begin with. But it was, in Dream's mouth.
+
+Hob wanted to know what the rest of him tasted like.
+
+Dream didn't get the chance to complain about Hob breaking the kiss before Hob's mouth was latched onto his neck. Of course it didn't taste like skin; it tasted like a nap in a garden. Would it bruise? Hob was briefly reminded of the conversation he wanted to have that would include a discussion on boundaries (you don't go through six centuries worth of partners without learning that it's best to settle them beforehand instead of running headfirst into them in the worst possible ways), but then Dream whined and dug his nails into his biceps. Okay, yeah, it could wait, right?
+
+"**Hob...**" He felt his name vibrate through Dream's throat. "**I want...**"
+
+"Yeah, love, me too. Bedroom?" _Centuries_ he had waited for this. It was _not_ happening on a shitty couch. He nudged at Dream's hips because he weighted nothing at all yet no force on Earth could've moved him if he didn't choose to be moved.
+
+Dream kissed him as he slipped off his lap, forcing Hob to scramble to follow him up lest they stop touching for even a second (unforgivable sin). It was not the first time Hob blindly led someone towards his room, and yet he still managed to miss the door and ended up pressing Dream against the wall next to it. Oh, well. They could have a little pit stop here, no harm, no foul.
+
+With the hand that wasn't cradling Dream's head, Hob began to push Dream's coat off his shoulders. When it fell to the floor and revealed the short-sleeved black tee underneath (bare arms, scandalous), Dream shivered. Hob smirked against his lips. Oh, he couldn't wait to break past the stoney façade and make him squirm.
+
+The reaction had been so delicious that Hob now used both hands to catch the hem of the T-shirt and push it upwards. He had pushed it all the way up to Dream's chest before he noticed that not only had Dream stopped kissing him, but he was pressing himself back against the wall like he wanted to disappear into it, eyes scrunched up tight. It was definitely not an expression of ecstasy or anything close to it.
+
+"Dream?" No response. "Dream?" Hob repeated, more insistent. He released the shirt and it fell over Dream's torso once again. That finally got his attention.
+
+When Dream opened his eyes again, for a split second they were a thousand miles away, but then he seemed to remember where he was. "**I-I apologize. That was... It will not happen again.**" He surged forwards to kiss Hob again, but Hob dodged him.
+
+"Dream, what just happened?"
+
+He almost stormed out, Hob was sure of it. Hob would've gotten really pissed if he had, not because of his own current situation—which by now was a half-situation and was quickly becoming a no-situation—but because Dream's reaction was worrying him the fuck out of his mind. The old Dream would've stormed out. This Dream just considered the option very heavily.
+
+"Please, talk to me."
+
+"**I...**" Dream crossed his arms over his chest, and maybe it was the bare arms and the rarity of only one layer of clothing, but once again he looked so painfully vulnerable. He had turned his head away from Hob. "**I have not been... without clothing... since I escaped from my imprisonment.**"
+
+Hob saw red. He had never wanted to learn anything about Dream's imprisonment beyond what Dream shared freely, but pictures had formed in his mind, as minds sometimes do without permission. He had pictured some sort of twisted temple, fit for a being beyond godly divinity but a prison nonetheless. He had pictured a common cell, like many he had seen himself. He had _never_ pictured anywhere where the basic decency of clothing was not granted. Trying to be gentle despite the rage coursing through him (one of the Hobs of the past would've already put his fist through the wall, he knew better now, that would not help), he bent down to retrieve Dream's coat and wrapped it around his shoulders. "Say nothing more, sweeting. We don't have to do anything you don't want—"
+
+"**But I _want_, Hob Gadling!**" Dream roughly shoved the coat off and grabbed Hob by the wrists. "**I. Want. _You_. Deeply. Ardently.**"
+
+Hob had learned his lesson of the day about letting his dick do the thinking for him, which is the only reason why he didn't snog Dream silly after hearing that. "You have me. And we can figure out a way for you to have me in any other way you want without risking your comfort."
+
+Dream's grip on his wrists softened, and a pensive expression appeared on his features. After a moment of consideration, there was a whisper of shifting sands and Dream was no longer wearing his coat, shirt, jeans, or boots. Instead, he was wearing a silk robe. _Just_ a silk robe. It was black (obviously) and long enough to pool around Dream's feet. The tiny stars on it were embroidered with shimmering black thread, so they seemed to appear and disappear depending on how the light hit them. Or maybe they _were_ appearing and disappearing. "**Will this do?**"
+
+Hob managed to speak despite his throat suddenly feeling completely dry. "You tell me, dove. Do you feel comfortable?"
+
+To Hob's relief, Dream seemed to actually consider the question instead of just rushing through and ignoring his feelings like before. "**Yes. Yes, I do. As ridiculous as it sounds, I think that with this I can trick my body into feeling covered without it, ah, getting in the way.**" As he said those last words, he gazed at Hob through lowered lashes, and Hob wanted to travel back in time just to tell his 1789 self that yes, that look he is giving you means exactly what you think it does, have your way with him on the tavern floor.
+
+But alas, his 2022 self still had some talking left to do, as much as he wanted to shrug it off as a common turn of phrase. "It's not ridiculous, Dream. Whatever you need to do to feel okay, it is never ridiculous, like how I avoid bodies of water larger than a tub or how I always wash my face with warm water. If it stops the bad shit from popping up, it's not ridiculous. That's what my therapist told me." Dream's eyebrow rose with an unspoken question. "Yes, I have a therapist. Yes, I have to lie to him constantly. Yes, it still helps despite all the lying. Can we stop talking about him now?"
+
+Dream started toying with the hem of Hob's shirt and smirked. "**Can we stop talking altogether?**"
+
+"Are you okay?"
+
+"**With you around, my knight?**" Dream threw his arms around Hob's neck. "**How can I not?**"
+
+Dream's mouth now tasted like the sleep that welcomes you after a long day.
+
+---
+
+Dream didn't need to breathe, but he was doing it anyways. Maybe it was for Hob's sake, maybe he just enjoyed the experience. Each puff of air that left his nose rustled the thick brown hairs next to his head where it was pillowed on Hob's chest. With one elegant finger, he traced patterns on Hob's abdomen, which twitched occasionally when Dream touched a particularly ticklish spot. Hob, for his part, ran his hand up and down Dream's spine. He could feel it even through his robe; he needed to reiterate his offer of venison pasties, get some fat on those bones.
+
+"All those years," he mused out loud, "and we didn't do this sooner. I mean, I don't know about you, but I've loved you... well, for a while now."
+
+More than seeing it, he felt Dream's smile against his chest. "**I fell in love with you in the year 1689.**"
+
+Hob's laugh rumbled deep within him. "Oh, you absolute _ass_."
+
+Dream immediately rolled off him and lifted himself up on his forearms to stare right into Hob's soul through his eyes like he was so fond of doing. "**I am not joking.**"
+
+Hob frowned. "Love, I was..." He gestured vaguely with the hand that had not remained stubbornly glued to Dream's back despite the shift in position. "I looked and smelled like the rancid turd of a seasick possum."
+
+Dream rolled his eyes in a way that was adorably human. "**Thank you for that lovely image.**" The robe began slipping off one shoulder, and as a knee-jerk reaction, Hob grabbed the collar and pulled it back up. When he released it, Dream caught his hand and laced their fingers together. "**But I mean it. 1689. The year I began loving you.**"
+
+"But..."
+
+Dream, the petulant brat, put his free hand over Hob's mouth. No talking during the King's speech, okay. "**I realized I cared about you beyond an... _experiment_ between my sister and I when you told me of the horrors you had gone through. I was certain that that was it, that you were going to request my sister's gift, and it hurt. Deeply. To think of all you had suffered, to think that you had given up, to think...**" His voice got smaller. "**To think I'd lose you.**" He paused, tears beginning to gather in his eyes, and Hob squeezed his hand to bring him back to the present. He had seen tears like that on that day, but he had chalked it up to a trick of the light. No Lord cries for a beggar. "**And then,**" Dream continued, "**you told me I was crazy for even asking that. You said you had so much to live for, and the hope in your eyes... It was so bright, I thought myself blinded by it. And in that moment, I knew I loved you. And I have loved you ever since.**"
+
+Not being able to say anything in response, Hob simply kissed the hand over his mouth. Dream conceded and removed his hand, not without dragging Hob's bottom lip down while he did so. Hob smirked. "If you had asked me to guess, I would've honestly said 1789, judging by that look you gave me."
+
+Dream chuckled, "**Ah, yes. 1789. I did want to do some unspeakable things to you in that moment, I'll admit.**"
+
+Hob chased the hand that had just been removed to kiss it further, tips of fingers, palm, pulse point. "Why didn't you, then?" He regretted his words when all playfulness vanished from Dream's eyes.
+
+"**Like I said before, I was scared. Attachments of the Endless to mortals... dangerous things. And you may not be mortal, but you are human, and Destiny's rules are often muddled and two-faced.**" He tried a small smile, but Hob could tell it was forced. "**And then there's my pride.**"
+
+"Ah. The third person in this relationship." He got a sharp poke to the gut for that, but it was worth it because Dream's smile was now genuine. "You didn't ask, but as for me: 1389. The moment I first saw you, you weird posh boy with a disgrace for a haircut who would've gotten his throat slit for that stupid ruby of yours, had you been human."
+
+"**Really? It was that easy?**"
+
+"Shut up," Hob grumbled. "And to be honest, I thought all you wanted was to have me on my knees behind the tavern, and that all that "_in a hundred years time_" shit was the poor excuse for flirting you had picked up in whatever castle you had crawled out of for the first time in your life. I watched you leave and waited a respectable amount of time to pretend we weren't leaving together, but when I got outside, poof, gone. Very disappointing." He titled his head, considering. "And then I didn't die. Less disappointing."
+
+Dream buried his hand in Hob's hair. "**Must you always be so crude?**"
+
+Leaning into the touch, Hob murmured, "You didn't mind me being crude half an hour ago."
+
+It was now Dream's turn to grumble, "**Shut up,**" adding a tug to Hob's hair, but the warning was overshadowed by the dusty blush that rose to his cheeks.
+
+"C'mere," Hob laughed, twisting his leg to pull Dream back down. Not done being a brat for the day, Dream let himself fall like a puppet whose strings had been cut and landed on Hob's chest. After placing a soft kiss on his forehead, Hob placed two fingers under his chin and gently lifted his head so they were eye to eye. "_Myne owne hertis rote_," he whispered and greedily devoured the spark of adoration that appeared in Dream's eyes.
