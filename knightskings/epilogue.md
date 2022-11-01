@@ -44,7 +44,7 @@ Hob could see the gears turning in Dream's head as he processed his words and th
 
 "Oh," was all Hob could say, feeling rather stupid. He knew about this sort of thing. He had _lived_ it. His and Eleanor's wedding had been more of a minefield of courtly manners and ill-intentioned guests than the rustic-barn-beach-fairy-lights-mason-jar stuff that sometimes popped up in his Pinterest feed (more so lately, which was quite suspicious).
 
-"**I cannot even guess if The Prodigal would attend or not,**" Dream continued, separating himself from Hob, clearly getting lost in his musings. "**The rest, on the other hand, would attend without a doubt, and to give Desire a chance to sabotage me...**
+"**I cannot even guess if The Prodigal would attend or not,**" Dream continued, separating himself from Hob, clearly getting lost in his musings. "**The rest, on the other hand, would attend without a doubt, and to give Desire a chance to sabotage me...**"
 
 "Yeah, definitely, I—"
 
@@ -89,3 +89,61 @@ In between kisses, Hob managed to ask, "We're doing it now, right?"
 "Fantastic. Do we need a witness?" Before he had finished his question, Hob already had his answer and he knew Dream was thinking of the exact same candidate. He could blame it on Dreaming magic making his thoughts more accesible, but in all honesty, there weren't a lot of options.
 
 As Dream gave him one last kiss, Hob felt a familiar breeze blow in from behind him, announcing the appearance of an open door. "**I'll meet you in Fiddler's Green,**" Dream whispered against his lips before standing up and rushing away.
+
+---
+
+Lucienne paused with her quill halfway to the inkpot when she felt the unmistakable presence of Lord Morpheus. She put the quill down by her ledger and raised her head. "Yes, my Lord?" she inquired with a polite smile.
+
+His expression was perfectly neutral apart from a regal jut of his chin. It was a perfectly normal expression for Lord Morpheus, but Lucienne could've sworn to have seen Robert Gadling in the library not too long ago, and that usually meant her King went around with a softer posture and small smiles. In his hand he held a thick tome—not as large as a book detailing a dreamer's life, mind you, but one that would be considered a lengthy read in the Waking World. He was holding it off to the side, where his coat fell over it, obscuring any further details.
+
+"**Lucienne. There's a matter in Fiddler's Green that requires your attention.**" His voice was as neutral as his expression. This meant it was nothing of great concern, and Lucienne was getting accustomed to being explicitly called upon for matters of the kingdom. He had truly changed, and Lucienne would be lying if she said she wasn't proud of him.
+
+She stood up and bowed her head minutely. "Very well, my Lord, lead the way."
+
+---
+
+Hob was standing under a gigantic ash tree and was pulling at a blade of grass he had plucked from the ground. He remembered the first time Dream had shown him Fiddler's Green. When his restless hands had inevitably pulled a daisy out of the ground, he had apologized profusely to Dream, to the dream, to the daisy, but Dream had explained (with a very amused expression) that he had committed no crime. Like all dreams, Fiddler's Green existed to serve the dreamers, be it to offer a tranquil moment under the shade of a tree, a flower to be picked, or, apparently, a blade of glass to twist between one's fingers while experiencing pre-nuptial jitters.
+
+When Dream and Lucienne appeared, she seemed surprised to see him there, which made Hob wonder what reason Dream had given her to bring her here. "Robert," was her way of greeting him.
+
+"Hob, I've told you. And, uh, hi." If this were the Waking World, his hands would already be clammy with sweat. God bless their choice of venue. His eyes met Dream's. "Hi," he repeated.
+
+"**Hello,**" Dream answered with a hint of smile. He was still dressed in his usual attire, and Hob felt quite overdressed. Dream presented a book he was carrying to Lucienne. "**I believe you are going to need this.**"
+
+When the librarian received the volume and opened it to the title page, her usually controlled demeanor failed her. "Sir, this is a _Bible_," she choked out. Hob craned his neck to see for himself. Huh, so it was. And not any Bible, the King James Version, Barker's original print.
+
+"**I am aware, Lucienne.**" When Dream spoke, Lucienne and Hob turned to look at him simultaneously. Out of the corner of his eye, Hob saw Lucienne's mouth fall open, and he knew that whatever face _he_ was making was a billion times more embarrassing. Hob was definitely not overdressed; he might even be _underdressed_. Dream was wearing a sheer organza blouse with bell sleeves fitted at the wrist and neck with black ribbons (and yes, the time Hob had spent behind the counter of a haberdasher between the World Wars was paying off, allowing him to truly appreciate what he was looking at). The fabric shimmered with blues and blacks over the canvas that was Dream's ivory torso. His black slacks were so perfectly fitted, they might as well have been painted on. Hob missed the familiar presence of the Doc Martens, but he had to admit the black ankle boots fit quite nicely. To top it all off, a magnificent cape billowed around him, long enough to trail behind him. A wedding train, of sorts. It was black in a way that no physical object on Earth could be black, devouring all light around it, and emitting its own light in the form of thousands of stars. "**It is traditional to have some form of sacred text, and I thought that the most fitting choice would be to stick to the tradition Hob is familiar with.**" As he spoke, he elegantly adjusted his ribboned cuffs despite them needing no adjustments, but it so happened that the gesture drew even more attention to his appearance. What an overgrown, goth _peacock_ he was.
+
+Lucienne's eyes moved between the two of them as she drew her conclusions of what exactly was going on here, calculated the diplomatic disaster her King was about to unleash on their realm (and mostly on her), and decided in what way to proceed. Hob would understand if she felt the need to yell at Dream for a bit, but he hoped that eventually she'd get on with officiating the wedding. "Well... At least _that_ explains _that_." She pushed her glasses up her nose as she gave Hob a once-over.
+
+Now Hob was the one with two pairs of eyes on him and on his outfit. He chuckled and spread his arms. "Yeah, uh, this just sort of happened. I _am_ fond of suits, I must say. They fit very nicely, make you look posh in a pinch, and there's not as many layers as there used to be. Three, four, tops. Nothing like before. It's nice to have something, well, _nice_ to wear that you can put on yourself without needing a valet." And it was a _very_ nice suit. The worsted wool of the jacket and pants was a rich, dark golden and smooth like butter to the touch. The Royal Oxford shirt was a paler shade of gold, almost to be confused with white except for the occasional glint in the Fiddler's Green sun.
+
+"And kids these days that complain about how wearing a tie is suffocating have clearly never worn a cravat." The silk necktie in question, also golden, was held in place by a tie pin depicting an anchor with a tiny ruby on the head. This was the only part of his attire that existed in the Waking World; it had been a gift during a faculty Christmas party, nothing really significant, but he guessed it had been brought forth into the Dreaming because of the gem.
+
+"And, uh, then there's this, which is very, um, _you_, I must say." Unaccustomed to such a garment, Hob self-consciously swished from side to side to show off his cape. He had worn capes in the past, of course, but those had been much more sober and most definitely made out of _fabric_. This one? Hob would bet good money it was made of pure golden light and his hand would go right through it if he tried (he was too nervous to try). The pattern—a patchwork of tiles with geometric figures like mosaics in a mosque—refused to stay put, floating around the general area of the cape and shifting around. "Thanks, I love it, and I never would've thought of something like it on my own."
+
+In times when Dream looked at him like he was doing right now, with unfiltered adoration, Hob couldn't help but think that this was truly a wonder of a universe they lived in, one where an Endless looked at a common man like that. "**I did not dress you, Hob,**" Dream explained. "**You _did_ think of something like that on your own, and I must say, it's exquisite.**"
+
+"_You're_ exquisite," Hob retorted, and Dream chuckled.
+
+"**I believe our witness is going to leave us to tend to her duties if we do not hurry.**" Dream presented his hands and Hob took them reverently, taking his place in front of his groom.
+
+Lucienne, in turn, took her place between them, Bible pressed to her chest. There were tears starting to gather in her eyes, but her voice remained firm. "There is nothing more important to me in this moment, my Lords, but I do understand matters of secrecy such as this tend to be hurried as a precaution." When she said "secrecy", the ash tree over them began to change. Its leaves became longer and thinner and its branches curved downwards until the three of them were standing under the cover of a weeping willow.
+
+Dream smiled at their sudden privacy, unnecessary as it was, for no creature of the Dreaming would intrude if their Lord did not want them to, and all creatures of the Dreaming would soon learn of the happy occasion through the joy of their Lord. "**Thank you, Gilbert,**" he murmured, and Hob, ever-curious, never-sated, wondered who that could be. Some sort of dryad inhabiting the tree? The tree itself? A single leaf on the weeping willow? He wasn't going to ask, though, not now. Why would he? He had an eternity stretching before him to learn everything he could every want about his soon-to-be-husband and his creations.
+
+"If I may, how long have you been planning to do this?" Lucienne asked.
+
+Without taking his eyes off Dream (would he ever be able to look at anything else in his life?), Hob replied, "To elope? About twenty minutes, Dreaming time. To spend as much time as I am allowed with this wonderful creature until the end of times?" He squeezed Dream's hands. "Quite a while, if I'm honest." For a moment, Dream looked like he was struggling to find something to say in return, but Hob gave his hands another squeeze to tell him it wasn't necessary if he didn't want to. Between him and his Stranger, he had always been the talker.
+
+Lucienne dabbed at her eyes with a handkerchief she pulled from her sleeves and cleared her throat. "Well. I am glad this is not something I was asked to prepare in advance. I would've spent ages going through every wedding speech that has ever been written and every love letter that has ever been sent, but I wouldn't have been satisfied. I can say now, in the clarity that only comes from the spontaneous, that that would've been a fool's errand. I do not need the words of poets or rhetoricians or lovers; I only need my own."
+
+"I am, undeniably, a part of my Lord. It would not suffice, however, to say that what he loves, we love. Each one of us experiences that connection differently. I have come to know and love Robert Gadling on my own volition. I know him to be a great man, worthy of admiration and respect of both humans and creatures of the Dreaming alike. He is a man I am more than happy to join in marriage to a being that I love for reasons that have nothing to do with the circumstances of my creation. Sir Gadling." She paused. "Hob, I have no doubt in my heart that you care about him as much as I do. He is safe in your hands. Lord Morpheus, we needn't concern ourselves with fears from our past. The future is bright in this new age."
+
+She looked down at the Bible in her hand, caressing the cover. "I was also given the task of bringing some tradition into this affair, but I do not know how to do so. Death will not do you part. In fact, she has been endeavoring to do quite the opposite since the very start of your relationship." Hob let out a hearty laugh and Dream's already wide smile widened another millimeter (most definitely reaching a new personal record). "I cannot join your lives like humans join theirs, nor can I turn to rituals conducted by gods or fae. Your union is novel and unique, and I am honored to have been chosen for the task."
+
+"All that remains for me to say is: by the power vested in me by you, my Lord, I am thrilled to pronounce you King and Prince Consort of the Dreaming."
+
+Kissing Dream of the Endless when one could also call him one's husband was beyond what any human, mortal or not, should be able to accomplish.
+
+Hob Gadling enjoyed being a human that tested the limits.
