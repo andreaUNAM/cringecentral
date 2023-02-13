@@ -22,3 +22,24 @@
   - (when Death shows up, Hob has a moment of gentleman-y panic because here's the older sister. and here he is. with her brother. alone in his private chambers. hand on his thigh. _and they are not even engaged to be wed_. Scandalous.)
 - Like i know this is technically not finished give me a fucking break ok
 - Also eventually a Constantine scene. Cause that would be funny.
+
+OKAY PART TWO LET'S GO WE CAN DO THIS
+
+- Here's what we know:
+  - Desire sneaked around the edges of the Dreaming, not quite entering so not quite breaking ancient laws
+    - That's why they had to draw Hob out a little bit
+    - The siren → demon? so that they REALLY didn't break laws up until Hob crossed A Line
+  - Desire has Luci by the short n curlies cause what is that bitchass angel but pure longing and desire for what once was, for power, for returning home, this time as a victor, not a fucken loser
+    - But wait! That's a dream, in a sense! Luci can get puppeteered by any Endless, I really have not outgrown the habit of treating them as my personal punchingbag huh
+- Dream knows that there is something sus with Desire's involvement with Hell, might need a person (demon) on the inside to tell him what's the sitch
+  - How do you get a demon to spill the beans? Well, with an exorcist, of course!
+  - Jo! Jo! Jo! Jo! Jo! and the crowd (except Hob) goes wild!!!!!!
+  - (I'm the entire crowd tbh)
+- Do I want to drag out the search and interrogation or does is this little demon ready to tattle?
+  - If Luci has been somewhat publicly dragged around by Desire, I think a demon might turn on them because CRINGE! BOSS IS A LOSER!
+    - (Speaking of loser bosses, dreams and nightmares need to unionize. this is completely unrelated to the fic.)
+  - From demon A it's some fingerpointing to demon B (siren) (without needing to go to hell PLEASE, Hob would go if Dream went AND I DON'T WANT HIM TO GO)
+    - (I'm going to end up sending them to hell, ain't I?)
+  - LUCI WHAT THE _FUCK_ DID I SAY ABOUT NOT GIVING A SHIT ABOUT YOU
+- something something desire showdown
+- epilogue

@@ -977,3 +977,277 @@ Leaning into the touch, Hob murmured, "You didn't mind me being crude half an ho
 It was now Dream's turn to grumble, "**Shut up,**" adding a tug to Hob's hair, but the warning was overshadowed by the dusty blush that rose to his cheeks.
 
 "C'mere," Hob laughed, twisting his leg to pull Dream back down. Not done being a brat for the day, Dream let himself fall like a puppet whose strings had been cut and landed on Hob's chest. After placing a soft kiss on his forehead, Hob placed two fingers under his chin and gently lifted his head so they were eye to eye. "_Myne owne hertis rote_," he whispered and greedily devoured the spark of adoration that appeared in Dream's eyes.
+
+## Chapter 15
+
+Hob thought he was just resting his eyes, but he still had some trouble realizing Dream had spoken to him and some more trying to figure out what he had said. "Y'said something, dove?"
+
+"**I _said_,**" Dream insisted, a tad shy of fully annoyed, "**I have an idea for what we can do next.**"
+
+Hob's eyes refused to open, heavy as they were, but he blindly found a bony hip to languidly stroke, silk soft under his fingers. "Gimme a few moments more, dearest, I'm not ready to get it up again just yet," he mumbled, only half joking.
+
+A hand swatted him away from the hip he had found, but considering the almost-silent chuckle that rumbled through the body pressed flush against his, he wasn't in too much trouble. "**About the _war_, Robert.**" This returned Hob's ability to open his eyes, and the first thing he saw was Dream watching him intently. "**Not the most common subject for pillow talk, I am aware, but time is of the essence, and I believe I have fulfilled my sister's request for rest. You can report back to her that it was completed to satisfaction.**" The arch of Dream's eyebrow told Hob that the way he had squirmed under Death's gaze had been noted and _would_ be exploited to antagonize him.
+
+"Bastard," Hob bit back. "I am sorry for having manners. And for being very reasonably terrified of your sister." It wasn't comfortable, but he managed to crane his neck to peck a quick kiss to Dream's lips without either of them having to move. "Your plan. I'm listening."
+
+Dream's eyes lingered on his lips for a moment like he was regretting talking shop in bed, but, unfortunately, he regained focus soon enough. "**We need to gather as much information as we can about my sibling's involvement in the invasion. If there's some sort of agreement between them and the Morningstar, it's a delicate one. Desire is not one to make alliances. Rather, they deal more in blackmail.**"
+
+"The Devil made a deal with the devil," Hob mused. His pinkie, on its own volition, was tracing Dream's eyebrows. He had never been good at laser-like focus on a single matter (and his therapist had some words, or rather a four-letter acronym, to say about it).
+
+"**Something like that. Lucifer is not standing as my sibling's equal in their arrangement.**" Dream titled his head towards Hob's touch, and it hit Hob that, yeah, this was their fucked-up version of pillow talk. "**Which is wonderful news for us. Hell's creatures are a vicious pack. Any sign of weakness, be it in the lowest of demons or in one of their Dukes, stinks like blood in the water.**"
+
+"So if their leader is being held by the short and curlies by some Endless..."
+
+"**...rumors have already spread about it,**" Dream completed, "**and there _will_ be demons who are unhappy with the arrangement. We just have to establish communication with one such demon, and I know where to start.**" And on that sweet and tender note, Dream brushed a kiss against Hob's jaw and slipped away from his grip. By the time he had rolled out of bed, his silk robe was gone, replaced by his usual jeans, shirt and jacket.
+
+"And how, pray tell, does one establish communication with a demon?" Hob asked, mostly just to stall for time, and scratched idly at his belly.
+
+Dream was narrowing his eyes, and Hob was certain he was considering grabbing him by the ankle and dragging him out of bed if he continued to play dumb. "**Through an exorcist, of course.**" Of course. "**Now, I can put you to sleep and take you to our destination as you are, or you can get dressed and come with me willingly.**"
+
+"Alright, alright." Hob chose to exit the bed on the other side just to have an excuse to turn his back on Dream and hide the silly smile threatening to split his face in half. Dream could've been gone to see this exorcist before finishing his sentence, leaving Hob to drown in worry until he returned. Instead, he wanted Hob to come with him, willingly or unwillingly (it would always be willingly). All of the Hobs of the past had been right about one thing: there was softness to him if one knew where to look.
+
+Another shower would've been nice, even with the neat trick Dream had pulled a while ago (which Hob was sure was less about being nice and more about being disgusted by the humanity of all those fluids), but Hob got the feeling that if he wasn't by the door in less than five minutes, Dream _would_ kidnap him mid-shower. This proved to be the right call when, after hastily putting back on what had been thrown around his room, he found Dream already by the back door, the one that led down the side of the Inn instead of having to walk through it. "**About time.**" He opened the door, and the suburban London evening greeted them, extensive and vulnerable. No longer a cozy bubble where fears could be laid bare with the safety that only the soft touch of a lover would be there to receive them.
+
+"Duck, wait." Dream's playful annoyance quickly turned to puzzlement when Hob touched his arm lightly and looked at him with concern. "How are you feeling?" Hob didn't need to say more. He could see in Dream's eyes that he was also remembering this morning, how he had clung to Hob and had suffered for his creations. As much as he loved seeing Dream smile, Hob knew that all of that was still lurking somewhere under the surface, and he refused to be complicit in pretending it wasn't there.
+
+"**We are going to fix this, aren't we?**" Dream said, a statement or a plea, not a question.
+
+Hob nodded, and Dream crossed the frontier of their bubble out into the rest of the Waking World.
+
+## Chapter 16
+
+First, Dream hailed a cab. He performed the gesture with such ease and confidence that he could've passed as any other bloke leaving his 9 to 5 and hailing any of the many cabs speeding through Central London. Except this _wasn't_ Central London; cabs were very rare around here. The street was almost deserted, and the handful of drivers that went by gave Dream a funny look. When no carriage appeared to answer His Majesty's summons, Dream made a small sound of frustration.
+
+"No cabs around here, love," Hob explained softly.
+
+"**There are currently several hundred in the Dreaming, driven by humans dreaming of their jobs as cabbies.**" Dream let the fact hang heavy between them without having to put into words why he hadn't called upon one of those cabs instead of trying to do it the human way. He stared at a passing car with his patented cold fury (causing another funny look) as if all of his problems were caused by the driver's refusal to accept a hitchhiker. "**I did not want to use my sand because it would not be comfortable for you, but it seems the Waking World does not want to cooperate with me today.**"
+
+Hob gently lowered Dream's arm and placed a hand on the small of his back to lead him towards the back of the New Inn. "I have a car, I can drive us," and then, because Dream had changed in the past 133 years and Hob wanted him to know it hadn't gone unnoticed, he added, "Thank you for your consideration."
+
+They drove into the city in silence. Dream sat with his back straight as a rod, and he was looking out the window at the darkening sky. It was always night somewhere in the world, and there was always someone sleeping somewhere in the world, but Hob guessed that the physical closeness to a city full of people preparing for their nightly trip to the Dreaming was particularly painful. All of a sudden, a cab sounded quite nice, with the freedom to gather Dream into his arms instead of being bound to a wheel and shift stick. As it was, Hob could only give Dream's hand a quick brush with his pinkie to see if Dream took the initiative to come closer. Dream didn't react. Hob did not try a second time.
+
+Hob cleared his throat. "Driving around can be good to clear one's mind, but I'm going to need an address if you need to go somewhere in particular." Could exorcists be summoned to any place that was convenient? Or would that go against their whole deal?
+
+Dream said nothing, so it took Hob a moment to catch, out of the corner of his eye, that he was being offered a piece of paper. "Oh. Okay." Hob weaved out of traffic to pull over and type the address into Waze. (Was this Dream's handwriting? Hob wanted to think it was. It fitted him. Thin, angular cursive.)
+
+The address corresponded to a flat in the last floor of a building that looked about thirty years old. Hob barely had a chance to find a parking spot before Dream was out of the car and striding towards the building. Hob had half a mind to chase him without even locking the car, but crime did not care about grieving Dream Lords and their worried boyfriends, and Hob didn't want to lose his beloved classic after so many years. By the time Hob made it inside the building, Dream was already stomping up the stairs.
+
+Had he just called himself Dream's boyfriend?
+
+By the time Hob caught up with Dream, they were already on the last floor. Dethroned or not, Hob was sure some dream magic had gone into making sure he struggled to keep up. He wouldn't put it past Dream to be a bastard like that. _Catch up_ with him wasn't even the right way to put it. _Crash into him when he stopped dead at the top of the stairs_ was more like it.
+
+As Hob steadied himself so he wouldn't take a tumble down to the previous landing, Dream finally spoke. "**I must warn you, Hob. The resemblance is uncanny, but she is a descendant, not the woman herself. She does not know you or know anything about your...**" A quick glance to the side, like he was James fucking Bond saying _eyes and ears everywhere_ with a pointed look. "**..._longevity_.**"
+
+"You have to know that's a bloody ominous thing to say, right?"
+
+Dream ignored him and knocked sharply.
+
+The sound of steps came from within, followed by "Coming, coming", then a clang as something toppled over, then "Ow, fuck, why is this in the fucking way?". And yeah, that voice. Hob knew that voice. From where did he know that voice?
+
+The first thing she said when she opened the door was, "Oh. It's you," while staring straight at Dream.
+
+The first thing Hob said when she opened the door was, "Jesus _fucking_ H. Christ."
+
+Dream gave him a look that said, _I literally_ just _told you_. She followed his gaze (and also the expletive, quite possibly) and regarded Hob with curiosity. "I'm sorry, have we met?"
+
+Dream replied quickly for him, "**No, you haven't.**" Hob would've complained that he was perfectly capable of answering for himself, but in full honesty, he did not trust himself to say anything at the moment.
+
+"Right..." The descendant-not-the-woman-herself-Hob-get-it-together eyed them both again for good measure. "Well, then. The name's Johanna Constantine, pleasure to meet you."
+
+The name felt like the last fucking straw, and it took Hob a moment to gather his thoughts enough to remember how to introduce himself. Gadlen? Gads? Wait, no, he had given up on changing his name around for about a century now. Ha. Ironic. "Robert Gadling. Pleasure is all mine," he said, trying and failing to keep the poison out of his voice.
+
+If Constantine noticed, she showed no sign. "I better invite you inside before our mutual friend breaks in again." She threw a small smile at Dream like they were sharing an inside joke, and Hob was ecstatic to see that Dream did not react. Who did she think she was, calling Dream their "mutual friend", trying to have inside jokes with him? When she stepped back into her home, Hob made sure to walk in behind her before Dream, keeping himself between the two at all times.
+
+She ushered them into a cramped living room, saying this and that and "Sorry about the mess" (and Hob thought _he_ was a hoarder). Hob ignored her. As she busied herself moving a pile of magazines from a chair to another larger pile off in a corner, Hob leaned in closer to Dream and hissed, "The name's the fucking same."
+
+"**I believe it is customary among humans to name their children after their ancestors as a sign of respect.**" Funny guy.
+
+"Yeah, I know, I've got the same name as my "father" who started the New Inn, and as my "grandfather" who gave him the money for it, and as my "great-grandfather" who fought in World War II," Hob made the corresponding air quotes right in Dream's face to make sure his point wasn't lost. And to be a bitch. "And I also share an uncanny resemblance with all of them, but _guess fucking what_?!"
+
+Dream didn't even have the decency of getting annoyed at his gesticulations. "**If she were immortal and the same woman we faced in 1789, I'd know.**"
+
+"I forgot you know everything, Your Lordship," Hob grumbled. He was starting to wish their night with this Constantine went similarly to the one with the other Constantine. He'd like to have something to punch.
+
+"Right." After fighting a losing battle against the pile of magazines and gravity, Constantine joined them in the living room, taking the chair she had cleared while they sat on the couch. "What is it this time? Sandman lost his sand again?"
+
+"**Nothing has been lost.**" Dream was still reacting with indifference to Constantine's familiarity, but that didn't lessen the twist of pain in Hob's gut. It was the same twist of pain he had felt when he had asked Dream _You know everyone, don't you?_ after he had recited Lushing Lou's life story, and it had only worsened when Dream told him Lady Johanna had **_undertaken a task for him and succeeded admirably_**. And here was the descendant, yet another human that seemed to know more about Dream in her tiny lifespan than Hob had known in the first six hundred and thirty-three years of their acquaintance. It was a close relative to the twist of pain caused by watching a Stranger clad in black leather lead a shit playwright out of a tavern. Why not him? Why hold him at arm's length? Why go to others with tasks and quests and commissions when Hob would've done it all for him, no questions asked, no payment required?
+
+He shook off the ridiculous pang of jealousy. It was different now. Dream trusted him now. Hell, right now he was entangled in quite an important quest from Dream. _With_ Dream. Not a human errand boy on his own, but a _team_.
+
+Dream was still speaking while Hob was distracted by his silly human feelings. "**I need to establish a line of communication with a demon. I cannot do it through any means of my own, and I was hoping a woman of your expertise could give me the assistance I require. Properly rewarded, of course.**"
+
+Constantine pursed her lips. "I'm your secretary now, that's it? Dialing the phone for you and all that? Why can't you do it yourself?"
+
+Hob decided to intercede to meet Constantine in her level of informality instead of sounding vaguely like a vampire soliciting a prostitute. "It's more about backdoor shenanigans." Well, that was even worse than the vampire john. Great job, Gadling. "Insider trading, classified information, that sort of thing," he amended.
+
+"Mm-hm." Constantine nodded slowly. "What's the demon's name?"
+
+"**Any that reaches out to us will do,**" Dream replied, and that did not sound like a fully fleshed-out plan to Hob, but no one ever asked the peasant for his opinion on demon summonings.
+
+Constantine, to Hob's great chagrin, seemed to agree with him. "We are not twelve-year-olds at a slumber party with a Hello Kitty Ouija board. You don't really mean _any_ demon. You've got something up your sleeve, Dreamlord, _and_ you're expecting trouble, or else you wouldn't have brought your bodyguard."
+
+Hob felt a cruel sort of pride at that. So she _had_ noticed his behavior and had realized that he's willing to break as many bones as it took to keep Dream safe. Good. Dream, however, wasn't so happy. He leaned forwards and growled, "**Hob is not my bodyguard.**" Prideful as always.
+
+Hob squeezed his shoulder and eased him back into the couch. "I'm sure she knows you can take care of yourself, d—" He bit his tongue. A business negotiation during times of war was hardly the place for endearments. "Dream," he finished awkwardly.
+
+When Dream turned to look at him, Hob forgot where he was or what he was doing. All that mattered were Dream's eyes on him with the intensity of a thousand exploding stars. "**That's not what I meant. You are not some hired muscle and I will not have you referred as such. You are my friend.**" The uncertainty of what they had yet to name danced behind hs words.
+
+"I can be more than one thing," Hob teased. Friend. Lover. Knight. Bodyguard. Whatever Dream needed, he'd be. He butted Dream's chin gently with his knuckles. "Don't put me in a box."
+
+"**You've always had a skill for taking up several trades,**" Dream chuckled.
+
+"Oi! How about we summon a demon and then you can go fuck on your own couch?"
+
+God, Hob really wanted to punch Constantine.
+
+## Chapter 17
+
+Constantine's "office" was probably meant to be a guest bedroom, and the fact that she was able to clear enough space to place a small round table at the center of it was a testament to her supernatural connections. She then started to rummage about, plucking out candles, a mat, chalk, and other exorcist knickknacks from boxes and drawers. Seeing her try to unlock a cupboard with an armful of antique candlesticks, Hob reached forward to help, but she slapped his hand away. "Your Mummy might have raised you to be a gentleman, but I'd rather you not touch my shit, alright?"
+
+Hob rubbed the back of his hand and shot daggers at the back of Constantine's head. "My Mam most definitely didn't do that, but now that I think of it, she _did_ tell me not to get involved in demon summonings, so I'm just going to let you do you."
+
+Constantine muttered, "Mama's boy," as she placed her kit on the table. She began arranging the candles in a circle over the mat and began chanting in Latin under her breath while tracing a circle and various sigils with the chalk.
+
+As a rule, Hob had steered clear of the occult throughout his long life. The last thing he needed was some spirit that had died decades ago recognizing him, or his Stranger getting miffed when he found out Hob had other magical friends and taking his wonderful gift away. That didn't mean he hadn't had occasional run-ins with the supernatural—hard to live for so long without ever seeing at least one thing that defied explanation—but even then he had bid it a good day and walked the other way. Hearing Constantine's chants and seeing the lights begin to flicker, even after everything he had experienced lately (he had killed demons with his own hands, for fuck's sake), Hob's instincts told him to grab Dream's hand and run. Thankfully, he had enough of his trademark foolhardy courage to stand his ground.
+
+From the bits and pieces he remembered from back when Mass was in Latin, Hob recognized that Constantine needed a name to say in the incantation when she faltered and glanced at Dream. Uncooperative as always, Dream merely said, "**I'll take it from here,**" and approached the table, and Constantine moved to stand next to Hob off to the side. Dream placed his hands within the circle and his eyes turned pitch black. Immediately, the room was filled with a thousand voices whispering. To Hob, they were an unintelligible hum, but Dream tilted his head this way and that and muttered, "**No. No. Absolutely not. Leave. Not you,**" and the number of voices started decreasing.
+
+"I knew he wouldn't go for _any_ demon," Constantine said, and Hob shushed her.
+
+Finally, Dream smiled one of those awful smiles that were all nightmare, no warmth. "**You.**" The voices went silent, and Hob expected the lucky chosen one to start whispering their intel. He would've preferred them to have whispered their intel while remaining a disembodied voice.
+
+Instead, there was suddenly someone else with them in the room. They stood next to the table Constantine had set up, opposite to Dream. (Weren't demons supposed to stand only within the summoning circle and if they were outside it, shit was fucked? At least that's how it works in the movies.) They had dark blonde hair styled in a wavy pixie cut, but unlike the other blondes that Hob currently had had up to here with, they barely reached 5'3''. In fact, Hob wouldn't have picked them out in a crowd of students, with their baggy black and white flannel shirt and jeans mended in several places with colorful patches. Well, maybe the murderous look in their green eyes would've set them apart, unless it was the final day of the semester and Hob was handing out grades.
+
+"I have to say, I am honored to meet you," the demon said, even though they really didn't look very thrilled, "but I am unsure of how to address you, sir. Considering that you are not a king anymore and all that."
+
+Hob could see the muscles in Dream's jaw twitch from where he stood. "**"Sir" will do. I am still one of the Endless, child. Still, you don't have to worry too much. Our interaction will be short-lived. You know why I am allowing you to be here. Speak.**"
+
+The demon fiddled with a hole in their jeans that they apparently hadn't had the time to patch up. "I know things about the Lightbringer. You wish to know these things, too. I am happy to pass on my knowledge..."
+
+"**...for a price,**" Dream finished.
+
+"Yes, but it's just more knowledge. You must know that that's what I like; that's why you chose me among all those gossipers and bootlickers, after all." Their eyes swept across the room and over Hob and Constantine. "Anything anyone here wants to offer, not just you, sir."
+
+An opportunity to stand between Dream and the line of fire? Hob's favorite type of opportunity. "I know a shitload of things," Hob piped up. "All of them absolutely useless, but you did say anything goes."
+
+The demon's eyes flashed green, not as a trick of the light, but as an actual neon outline firing on and off momentarily. "You always sell yourself short, Dr. Gadling. Your knowledge is very welcome."
+
+"See, right there, someone might overhear you calling me "doctor", and they might think I can help them with a broken leg or with a heart attack, but all I can offer is a dissertation on warfare as a trade for the common man of Medieval England." Knowledge. He could do this. This was a lecture. He could do lectures. He wrung his hands as he tried to think of a topic, but his brain was suddenly even more barren than it had been before he learned to read. All eyes were on him. "Right. Um."
+
+"**I can supply my own payment for my query, Hob,**" Dream interrupted. Hob waved him off.
+
+"I got this, love. You called me a scholar, remember? You said, and I quote, "**You've become quite a scholar, haven't you?**" The kid wants to learn something new, and I can help them with that. It's literally my job now." Hob clapped as the contents of the last lecture he had prepared before his life had been flipped upside down by demon wars came to him. "Right. So there is this bloke, Simon de Montfort, and he does alright, but he still has a bone to pick with the King..."
+
+In the comfort of his current trade, the words flowed out of Hob. He would even go as far as calling it one of his best lectures, despite the small and odd audience. Dream looked absolutely fascinated, which only spurred Hob further. Constantine looked like she wanted to summon another demon just so it would kill her. The demon looked puzzled, but they did not interrupt Hob. Once he had painted a pretty decent biographical picture with generous details on the Second Barons' War, Hob paused. "Is that... was that...?"
+
+"That was sufficient payment, Dr. Gadling," the demon replied. "It is not what I usually receive when I draw knowledge out of humans, but it's an acceptable offering nonetheless."
+
+"Bloody boring, is what it was," Constantine grumbled, but Hob ignored her in favor of bowing minutely for his demonic audience.
+
+"Now, for my part." The demon returned their attention to Dream, spreading their palms, and their eyes flashed their neon contours once more. When they spoke again, their voice had an additional raspy quality that hadn't been there before, reminding Hob of times before digital audio. "The Morningstar was planning an invasion of your realm—former realm, I apologize—as a first step towards their return to the Silver City when Desire of the Endless contacted them. I obviously was not privy to their meeting, even my master was blind to what transpired between the Endless and the Morningstar, but it is easy to deduce from how quickly the invasion evolved that the Morningstar received invaluable intel on the inner workings of your realm."
+
+"After this, Desire of the Endless was not seen in Hell again, but the Morningstar was no longer the head of the army, not really. Sometimes they would change their orders, but they seemed reluctant to do so. They often refrained from making decisions on the spot, claiming that they wanted to weight their options first, but when the time came for their verdict, they weren't always convinced on the course of action. And the _coup de grâce_: a demon from the circles of lust and the like was enlisted to aid in the abduction of some enemy knight, who knows who." A sly glance from the demon told Hob that they knew exactly who. He felt his face grow hot at the mention of a lust demon. Maybe he should've told Dream the whole story about his abduction; he didn't want to know what conclusions the other was currently drawing.
+
+"Not too unusual a plan," the demon continued, "but what was unusual was that the knight was never brought to Hell, and soon after the King of Dreams abdicated, my, oh my. Ever since then, there have been no new orders, unlike the constant shifting strategies of before. And the Morningstar seems quite agitated about this." The demon tucked their hands into the back pockets of their jeans and began swaying on the balls of their feet.
+
+"Didn't we..." Hob began hesitantly in case the demon wanted to say something else. "Didn't we already know all of that?"
+
+"**We suspected,**" Dream corrected. "**But now we have confirmation that Desire was involved in the invasion _and_ that they enlisted a demon to draw you out of the Dreaming. We also have a witness, and Destiny respects the testimony of their master.**"
+
+"Isn't Lucifer their—?"
+
+"Hell politics are complicated," Constantine explained sharply. "There are subdivisions and sub-masters and a whole tangled mess of loyalties and bureaucracy."
+
+Hob cracked a smile. "Sounds like Hell."
+
+Just like one of his students would, the demon rolled their eyes at his joke. "Sure. Can I go now?"
+
+Dream seemed startled in a very uncharacteristic way for a second and then, in an even more uncharacteristic way, said, "**Of course. I'm sorry. You are dismissed.**" He broke the circle with his thumb, and the demon vanished. After wiping the chalk from his thumb on Constantine's fancy exorcist mat, he turned to Hob with a glint in his eyes. "**Doctor?**"
+
+Hob shrugged. "There was an opening in one of the grad courses, and I have nothing but time."
+
+## Chapter 18
+
+"So... that went well."
+
+After Dream had paid Constantine with a wad of cash that had magically appeared in his coat pocket, Hob had offered some awkward pleasantries as goodbye, which Constantine had ignored in favour of counting the money. They were now back outside, but instead of walking back to the car, Dream appeared too preoccupied with staring up at the sky pensively. When Hob spoke to get his attention, a moment passed before he answered. "**Hm? Oh, yes. It went well.**"
+
+"I was being sarcastic, love."
+
+Dream finally turned towards Hob with a puzzled expression. "**But it _did_ go well.**"
+
+"It didn't go _bad_, sure, but I was expecting something..." He waved his hand as he searched for the right term. "_Conclusive_. A holy weapon to strike down Lucifer and when I grabbed it, there would be some level up sounds and I'd be beefier. Or something."
+
+Dream rolled his eyes. "**You really want a holy weapon, don't you? Isn't the knowledge we acquired good enough for you?**"
+
+"Once a brutish fighter, always a brutish fighter, I s'ppose," Hob replied with a shrug.
+
+Dream crossed his arms over his chest. "**You say that even though you just proved yourself to be knowledgeable, _and_ you've proven time and time again to be a gentleman.**"
+
+With a mischievous grin, Hob reached into the pocket of his jacket. "Would a gentleman have done something like this?" He pulled out a small pendant hanging from a chain. He had no idea what it was, but it looked like gold, and if his trained eyes said it was gold, then it was gold. "I'm sorry," he added even if both of them knew he didn't mean it, "I had to. It was either this or punching her."
+
+"**You have a quick hand, Hob Gadling. I am reminded of how you stole some silver cutlery from the White Horse back in 1689.**"
+
+Hob's eyes widened. "Oh. You noticed that, then?"
+
+A sly smirk started to toy at Dream's lips. "**Didn't you find it bizarre to find silver cutlery at the White Horse, even though they usually use more common metals?**"
+
+Hob thrust the pendant back into his pocket with anger so exaggerated it could only be fake. "Oh, so indirect charity. That's what that was."
+
+If Hob had to choose a word to describe the way Dream caressed the side of his face then, it would be "condescending." "**I enjoy using finery, Hob. Not everything is about you.**"
+
+Hob swatted his hand away. "Alright, alright, milord who enjoys using finery. What are your next orders? We're in a tight schedule, remember? Or did you just want an excuse to scurry out of my bed?"
+
+Hob wished Dream would push back a little more and keep fucking around a bit (to see what he would find out, as the kids say), but Dream snapped into business mode immediately. "**I'm sending you back to the Dreaming. They need you there to finish pushing the Lightbringer out of my realm.**"
+
+"Hold up. I'm going back to the Dreaming all by my lonesome while you go face Destiny? That's what you're going to do, isn't it? State your case?"
+
+"**No, I—**" Dream wasn't meeting his eyes anymore. "**I'm going back to Desire. We can settle this between us; there's no need to bother Destiny directly.**"
+
+Maybe Dream had forgotten that Hob had been there (and had been mostly conscious) the last time Dream and Desire had _settled_ something between them. If that was the easy path to take in this situation, then Hob would very much like never to meet Destiny in person. Unless, of course, it was to stand between him and Dream if there was trouble. Speaking of... "I don't know how your rules work, dove, but I don't like the idea of you back in Desire's realm without me there backing you up."
+
+The anger that flashed across Dream's features was not exaggerated or playacted in the slightest. Hob had played the protective card one too many times. "**I'm starting to think you truly believe I can't take care of myself, Robert, even though—**"
+
+"Dream—"
+
+"**_Even though_, if I may remind you, there were millennia upon millennia before your birth where I managed to survive just fine.**"
+
+"Dream, it's not about you!" Hob's words surprised both Dream and himself, and it took him a beat to finally face the truth that had always been there, in the deepest corners of his heart. "I mean, of course it's about _you_, I want to protect _you_, what I mean is that it's not about you being in need of protecting. It's about..." He ran his hand through his hair. "It's about me needing to protect you. It's all I can give you, love. My passion, my strength, my rage. Once, I thought that what I could give you, what you wanted from me, was my soul. Then, I thought I could offer riches and feasts and fucken _lamb_. Then I got a little taste of what it was like to protect you, and fuck, if it wasn't the sweetest delicacy. And _then_, when you really needed it, when you were... _in there_, where was I? Drinking myself under the table because I thought the man I had loved for centuries didn't even consider me a friend."
+
+Dream's voice wasn't even a whisper. "**You couldn't have known.**"
+
+"Maybe I should've. If my purpose, if my entire reason for existing is to be there for you when you need it, then maybe there should've been some Batsignal going off in my heart to let me know I had to drop everything and rush to save you. If not, then what's the point of me?" He pressed the heels of his hands to his eyes. He was _not_ crying in the street outside _Constantine's_ flat.
+
+"**Humans don't have a point.**"
+
+Hob lowered his hands slowly. Okay. Maybe he _was_ going to cry in the street outside Constantine's flat. "What." He didn't even bother to make it sound like a question.
+
+"**Maybe that wasn't the best way to phrase it. What I'm trying to say is that there is no singular, overarching purpose to a single human's life. I thought you of all people already knew that. You've been, just to name a few trades, a bandit, a stock broker, a nobleman, a typographer, a brothel owner, a husband, a _father_, I don't think it's necessary for me to continue. Of course, one could argue that in terms of numbers, they have been several different lifetimes, but it has only been one human throughout it all. You. Me? My purpose is my function, and my function is my existence, but you are infinite, Hob.**" Dream's smile was so genuine it felt almost blasphemous for it to be here, in public, in some random London street. "**And I love you for it.**"
+
+Hob could only stand there, dumbfounded. Dream made it sound so obvious that Hob felt like a petulant fool for what he had said before. He knew from previous experience that it wasn't that easy, that those feelings were not gone for good, not yet, but at least right now the fog had cleared momentarily. "First of all," he began once he regained his voice, "I love you, too. Second of all... fuck, I've been one clingy bastard, haven't I?"
+
+Dream took Hob's right hand with both of his own and pressed it against his chest. "**You have been very attentive during these rough times I'm facing. I just wish you didn't put yourself in needless danger without thinking, took some time for yourself every now and then, got enough rest every night, and didn't say things like "I'll rest when I'm dead."**" Dream kissed the hand he was holding and let it go.
+
+"Wow. The ol' complaints box has been filling up for quite some time now, huh?"
+
+"**It should not surprise you by now that I am fastidious.**"
+
+"Maybe not. But that doesn't mean I'm not going to give you hell about it." Hob pulled in Dream by the lapels of his coat, but his plans to plant a kiss on Dream's forehead were immediately foiled when Dream kissed his lips instead. Not that he was complaining.
+
+"**We'll meet in neutral grounds. Desire and I,**" Dream whispered once they separated.
+
+"And I'll go help in the Dreaming. I miss the gang, and I'm sure they miss you very much, too."
+
+Dream smiled sadly. "**Give them my best.**"
+
+"I will. Now, let's go home some I can drink some of my extra fancy herbal tea, you can tuck me in, and off to Dreamland I'll go."
+
+"**There is a more direct way to do it, if you wish to hurry.**"
+
+"So no holy weapon _and_ you're not tucking me in? I might start feeling neglected here."
+
+Dream had gotten out his pouch of sand and gave Hob an irritated look as he emptied some onto his outstretched palm. "**Robert...**"
+
+"Fine, fine." Hob opened his arms to the side and closed his eyes. "Hit me."
+
+"**Stay safe**," he heard Dream say as he felt the first grains of sand tickle his face, and he answered, "I will. For you," just before losing consciousness.
