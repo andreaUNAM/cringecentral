@@ -1251,3 +1251,107 @@ Dream had gotten out his pouch of sand and gave Hob an irritated look as he empt
 "Fine, fine." Hob opened his arms to the side and closed his eyes. "Hit me."
 
 "**Stay safe**," he heard Dream say as he felt the first grains of sand tickle his face, and he answered, "I will. For you," just before losing consciousness.
+
+## Chapter 19
+
+"This is highly unorthodox, dearest brother."
+
+Desire's voice seemed to be coming from everywhere at once. That very well could be a trick they were playing with their powers, but it could also be a perfectly natural effect caused by the location Dream had chosen. Theaters were designed to carry the voices of the actors across the entire hall (without microphones, in the most traditional designs). When there was no audience to absorb part of the sound waves or distort them with their coughing and shuffling, the effect was stronger. In fact, Dream's own boots clicked louder than they usually did when he turned to face his sibling as they sauntered in from stage left. He met them halfway.
+
+"**We both appreciate good theater. I considered this to be a symbolic middle ground for us.**"
+
+Hob didn't appear in the battlefield, or even a makeshift center of operations on the sidelines of it. He was back in Dream's castle, in the library, a couple of meters away from the table where the Dreaming's council, now led by Lucienne, was holding a session. They didn't notice him at first. "Uh. Hullo."
+
+Lucienne straightened up with a start and narrowly missed hitting Matthew, who squawked and hopped away. "Robert! You... are here..." As she spoke, she not-very-discreetly tired to look over Hob's shoulder and around him, as if the rightful king of this place and a bloke who stood at almost 1.80 meters and liked to be the center of attention would be shyly hiding behind him.
+
+"There is also the teensy tiny little detail that you can't go to your realm and so you can't summon me from your gallery." Desire twisted their blood-red lips into a mockery of pity. "I don't think it has even been a full 24 hours, and for you and me that is beyond _nothing_, half of a thousandth of a blink. I wanted to point that out so you know that whatever sort of bargaining for your throne you are about to do, it _will_ be pathetic and will be more begging than bargaining." Desire made a "you have the floor" gesture.
+
+"**No amount of time during which my creations are suffering without me can be considered short.**"
+
+"He's not here," Hob answered Lucienne's unasked question. "He can't be here, not yet. He's off..." He did a quick mental calculation of how much he should worry Lucienne. "He's off doing his own thing. You only have little old me, for now."
+
+Lucienne looked ashamed to have been caught. "Of course. I understand. I just thought that the next time we saw you would be with him, when he came back."
+
+Hob didn't want— didn't have _time_ to get angry at his allies. "Look, he _wants_ to come back. He's risking everything to come back. When I said he was off doing his own thing, I didn't mean he was getting mai tais in Cancún, I meant—"
+
+"No, no, no, you misunderstand me," Lucienne interjected while waving her hands in front of herself. "I am not upset, it's a good thing. Well, I _am_ upset that he's gone and it is not good that he has lost his throne, I—" She was getting quite flustered, and took a deep breath before continuing in a calmer voice. "I am surprised that he sent you here when he cannot be here, too, to... what is the term humans use? "micromanage". I am surprised that he is off doing "his own thing"." She smiled at Hob, that small, warm smile that feels like a seal of approval. "You are good for him, Robert."
+
+"Of course, of course, those poor things." Desire began walking around Dream. "You've been very busy, spending every second working on ways to help them." They stopped their pacing. "Even having sex with your knight to make sure morale stays high." Dream opened his mouth to retort, but Desire seized him by the chin, their claw-like nails digging into his cheeks. "You stink of it, brother. Of _him_."
+
+Hob shifted awkwardly. A part of him wanted to retort that no, he'd never be good enough, not for Dream, not for anyone, all he could do is keep trying and trying to help him or anyone that needed him. However, his last conversation with Dream was still fresh enough that it helped him push that voice down. He wasn't quite ready to sing his own praises either, though. "You can call me Hob," was what he settled on replying.
+
+Dream shoved Desire away, feeling the stinging trail their nails left on their wake. "**Don't try to draw me into a fight. It will not work. I know what you've done, my sibling, and I am giving you a chance to make things right without Destiny having to intercede.**"
+
+"Oh, you _know_ what I've done?" Desire laughed. "You keep saying that, dearie." They put their hands on their hips and furrowed their brow exaggeratedly. ""**I know you helped Luci.**" "**I know you were in my realm.**" "**I know you took my boyfriend.**" "**I'm going to tell on you.**" Dream, honey, you have _jack fucking shit_. Sure, I made some jokes about puppeteering the Lightbringer and sneaking in through your back door, but did I really? Sure, I thought Robbie really completed the decor, but did _I_ take him? He's just a human, he's free for grabs, and for all you know, he could've been delivered to my doorstep—"
+
+"**—by a demon from the Second Circle who could access both my realm and yours, who was put on this task by the Morningstar, but never took their prize back to Hell. For all I know. And I know this and plenty more. You were a fool to intercede in Hell's affairs and undermine their ruler, Desire. There are some watchful demons, you should know this.**"
+
+"Yeah, I'm going to stick with Rob," Matthew interceded. "Y'know, like a normal person. And as your new boss, I have to tell you that you're late for your shift. I'm not running a resort here, Rob."
+
+Hob met Lucienne's eye, who shrugged in a "let him have this" way, so Hob materialized his armor and longsword and saluted. "Aye, aye, sir. The usual?"
+
+"The _ush_, yeah, the ol' slice and dice."
+
+Desire's expression darkened as Dream spoke. "Those little gossips and their voyeur master," they spat. "I really do hate his whole Big Brother Is Watching routine, we have enough of that in our family."
+
+Dream grinned with malice. "**I think that is precisely why Destiny respects his testimony, if he were ever to hear it.**" It was Dream now who grabbed Desire by the face, making sure that pitch black talons dug into powdered cheeks. "**So what now?**"
+
+"I'm going to kill you someday."
+
+Dream cocked his head to the side. "**Just that? Without a scheme, without a smile, without bravado?**" Holding Desire in place, he pressed a kiss to their forehead. "**Call in the Morningstar, little one.**"
+
+## Chapter 20
+
+It really was a powerful thing, to ride into battle with a raven on his shoulder.
+
+Hob willed himself to disappear from the castle and off he went. He was proud at first of his growing grasp on the workings of the Dreaming, but with a pang of guilt and pain, he wondered if it was just because Dream wasn't around to keep a hand on the reins of his creation. There _was_ a feeling of wildness in the air. Angry, vengeful wildness of creatures who were without their King and did not care for it one bit.
+
+Night Mare materialized next to Hob immediately, tossing her head and snorting. "Oh, I've missed you, too, girl," he said, patting her head. As he mounted, Matthew swooped down from the sky, circling above his head until he deemed his shoulder stable enough to land. That, too, was a first.
+
+"It's gotten messier while you've been gone," the raven said.
+
+Hob scowled, remembering how it had pained Dream to feel the battle continue far from his reach. "I imagine." They were in the outskirts of the active battlefield, and it was way closer to the castle than he remembered. All around him, wounded nightmares were being ushered to safety by dreams, who were also in charge of the makeshift med stations. The treatments administered were bizarre in the tamest cases, and made Hob's head hurt just by looking at them in the worst ones. "This wasn't here before," he said as Night Mare trotted around the various stations.
+
+"Dream did most of it before," Matthew replied in a voice that seemed too soft to be able to come from a raven.
+
+"Oh." Hob stared at a nightmare made entirely from flesh whose demon-induced damage appeared to be getting partially melted, and the treatment for that was apparently cutting new wounds in haphazard order and getting stitches placed where stitches weren't needed. Huh. Hob shook his head and turned Night Mare away and towards the enemy front. "The ol' slice and dice. Let's go."
+
+---
+
+"I don't think I'm supposed to be all the way out here." Lucifer's smirk showed just how much they were worried about where they should and shouldn't be.
+
+"You're with us," Dream said, and at the exact same moment, Desire said, "You're with me." The eyes of both Endless met, and Desire's murderous intent increased tenfold.
+
+It was dangerous indeed for the three of them to be standing in the old theater. Dream could feel it start to disconnect from the Earth, unable to keep existing in the mortal plane while containing their combined essences. It didn't matter. This was going to be quick.
+
+Lucifer nodded, glancing between the siblings with an icy smile. "Desire, your summons surprised me. Are you here to mediate? This cannot possibly be a formal conference. The current leader of the Dreaming isn't present."
+
+"I've reinstated myself as King, effective immediately," Dream replied curtly. "And I am here to accept your surrender."
+
+The facade broke momentarily. The Morningstar turned to Desire, a puppet asking its master to direct its next movements. "_My_ surrender? I'm sorry, am _I_ the one with a fractured government, who is losing ground by the second?"
+
+Desire, of course, swooped in before Dream said something that would humiliate them alongside the Lightbringer. "Sweetkins, this just isn't working anymore, our goals are no longer aligned, I'm afraid I have to let you go, I wish you luck in all your future endeavors, so on and so forth."
+
+Lucifer's smile vanished. "So I no longer have your sponsorship. This means nothing. I will not surrender."
+
+"You will, though. I kinda need you to. I don't like unfinished projects running around with my stamp of approval." Desire scrunched their nose, as if imagining the resulting inconvenience.
+
+Lucifer's entire composure vanished. "I will _not_ be addressed like a... a... a _pet project_. I am not commanded—"
+
+"But you are," Dream interrupted, tiring of his sibling mincing words to distance themselves from the defeat. "I told you so in Hell, you are commanded by your dreams of vengeance and freedom." It felt like swallowing a piece of rotten fruit, but he added, "And by your desires."
+
+Desire startled at these last words but then, also seeming like they were trying to swallow something bitter, agreed. "You want to invade the Dreaming as a stepping stone to get back to Heaven. That desire, as strong as a homing beacon, is what drew me to you."
+
+"And this is enough to make me humiliate myself by ordering an unexplained retreat?" Lucifer demanded.
+
+Desire just shrugged, but Dream was trying to start to live his life without making the same mistakes over and over again. "What was said here is only known to us three. Neither of you have it in your best interest to let it to be known by others, and I, personally, see no point in doing so. As it has been pointed out to me," Dream glanced at Desire, "the short amount of time in which I requested an audience after being forced to resign does not shine a very flattering light over me. The gossip that will surely spread will make sure to point that out, too. Whatever it will say about you, Lightbringer, will not be worse than what is already being said of your involvement with my sibling, I'm certain of it. I did you a favor by not doing this in your realm."
+
+The Morningstar paused, considering Dream's words. "And if I refuse?" they finally asked.
+
+Dream turned to Desire. His sibling's smile was wide, wider than any human could physically achieve. "You don't want to know how my family takes a breach of contract," Desire said.
+
+With their fists clenched and trembling, Lucifer tried for a smile again. "I'll give the order for a ceasefire, then. I look forward to any other future arrangements with any of your esteemed persons."
+
+Once it was just the two of them, Desire looked at Dream and shuddered. "Ugh. Ew. Ugh. Agreeing with you—" They gagged. "Hated it. Fuck you. See you at the next family dinner."
+
+And Dream was alone on the rundown stage.
